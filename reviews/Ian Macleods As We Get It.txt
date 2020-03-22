@@ -20,3 +20,5 @@ This has a lot code of 16/03/15.  So what is it?
 **Rating: 92/100**
 
 ^166^th ^/r/scotch ^review
+
+/u/review_bot 'Laphroaig'
