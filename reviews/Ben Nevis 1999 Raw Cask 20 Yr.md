@@ -4,7 +4,7 @@
 
 [This Ben Nevis](https://www.whiskybase.com/whiskies/whisky/150653/ben-nevis-1999-ba) was distilled 13th May 1999 and bottled in May 2019 by Blackadder, bottle number 14 of 112 from an ex-bourbon cask.  The "Raw Cask" series is not only natural colour, cask strength, and non-chill-filtered, it's not filtered at all and contains cask sediments!
 
-* **Color:** chestnut (1.20)
+* **Color:** chestnut (1.2)
 * **Nose:** ethanol, banana cream pudding, swimming pool chlorine, applesauce 
 * **Taste:** spearmint, pistachios, baked beans, red vines, rotting forest leaves, vanilla   
 * **Finish:** very long, cloves, honey
