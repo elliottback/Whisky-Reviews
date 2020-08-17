@@ -12,5 +12,3 @@ The latest in Bruichladdich's nasty super-peated offering is 5 years old, 167 pp
 This stuff is just pure sex.
 
 **Rating: 93/100**
-
-^95th ^review

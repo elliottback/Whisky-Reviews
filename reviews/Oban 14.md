@@ -14,7 +14,3 @@ I get a lot of great floral, grassy, spring meadow out of this malt, but it's in
 Will I buy it if I see it?  Probably not, but it's good enough that I want to get my hands on the Distiller's Edition, finished in Montilla Sherry casks.
 
 **Rating: 78/100** 
-
-^24th ^review
-
-[Homepage](http://www.whisky.com/brands/oban_brand.html) | [Review](http://www.connosr.com/reviews/oban/oban-14-year-old/) | Buy @ [Wine-Searcher](http://www.wine-searcher.com/find/oban+14)

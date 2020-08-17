@@ -12,5 +12,3 @@ As the entry level malt in Old Pulteney's Wickian quiver, I strongly suspect it 
 I'm just not feeling OP12; it lacks sufficient complexity or lightness.  From the marketing you'd expect a nimble spirit like Talisker or Scapa's little catamarans but instead Old Pulteney has delivered a Maersk Triple E: slow, heavy, and dull.
 
 **Rating: 68/100**
-
-^99th ^review

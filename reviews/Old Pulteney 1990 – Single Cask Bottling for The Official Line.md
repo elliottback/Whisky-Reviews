@@ -1,4 +1,4 @@
-**Old Pulteney 1990 – Single Cask Bottling for The Official Line / 18 yr / 53.6%**
+**Old Pulteney 1990 - Single Cask Bottling for The Official Line / 18 yr / 53.6%**
 
 *Tasted neat & w/bottled water*
 
@@ -16,5 +16,3 @@ Never tried OP ([the 21 year was named "Best Whisky of the Year" by Jim Murray i
 Truly phenom, and I love the Islay hints.
 
 **Rating: 93/100**
-
-^76th ^review

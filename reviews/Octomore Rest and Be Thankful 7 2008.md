@@ -14,7 +14,3 @@ I'm a bit unhappy with the cork, which is coming a bit apart...
 I'm very happy with the spirit!  This might only be 7 years old, but it's got the huge peatiness of Octomore coupled with the lushness of a French Oak cask.  I think it's not quite good enough to stand alongside the perfection that is other Octomore OBs, but it's very very close.
 
 **Rating: 87/100**
-
-^170^th ^/r/scotch ^review
-
-/u/review_bot 'Octomore'

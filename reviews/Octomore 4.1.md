@@ -15,27 +15,6 @@ I am rating this perhaps higher than I would *objectively* with a few caveats:
 
 * This is just 5 years old
 * It's a "concept whisky"
-* As a novelty bottle, it's fantastic.  It won't be your everday drink.  Would you eat Crème brûlée for lunch for a week?
+* As a novelty bottle, it's fantastic.  It won't be your everday drink.  Would you eat Creme brulee for lunch for a week?
 
 **Rating: 91/100**
-
-^67th ^review
-
-**[Octomore 5.1](http://www.bruichladdich.com/the-whisky/peated-whisky/octomore/octomore-5-1-169-ppm-whisky) / 59.5% ABV / 169 ppm**
-
-*Tasted neat/bottled water*
-
-Thanks to /u/UncleTobys for a sample of Octomore 5.1, and check out /r/ScotchSwap folks!
-
-The 5.1 is simply the latest, slightly peatier version of Octomore.  ABV is a bit lower, perhaps they are stretching to meet demand :P
-
-* **Color:** lighter than 4.1, with really delicate 24k gold refractions, chardonnay
-* **Nose:** lighter fluid, more peat, greenhouse brine, floral
-* **Taste:** snappily coats your tongue, cloying texture, sticky, s'mores, 
-* **Finish:** smoke is literally coming out of my nose, phenol
-
-I think that UT's sample is fresher than my aging bottle of Octomore, and I give it all the stars Octomore deserves.  It's young and punchy.
-
-**Rating: 93/100**
-
-^68th ^review

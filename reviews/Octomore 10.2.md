@@ -26,7 +26,3 @@ It was a little tricky to get my hands on--I saw bottles floating around in Japa
 This is an excellent dessert treat; it's significantly more laid-back than 4.2/Comus was, but it's got three years of additional maturation to give it a more refined, statesman-like character.  It also continues to be completely unique--I cannot think of any peated whisky that turns up this richly sweet than Octomore putting their juice into Sauternes casks!
 
 **Rating: 93/100**
-
-^^181st ^/r/scotch ^review
-
-/u/review_bot 'Octomore'

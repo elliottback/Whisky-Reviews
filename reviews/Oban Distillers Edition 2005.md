@@ -11,10 +11,6 @@ This is the Oban Distiller's edition, distilled in 2005, bottled in 2019 (code O
 * **Taste:** thin, dry oranges, clover honey, bitters
 * **Finish:** medium; short, cloying sweetness
 
-This is by no means terrible, but it's bland, and lacks structure.  Would not rebuy.
+This is by no means terrible, but it's bland, and lacks structure.  Would not re-buy.
 
 **Rating: 72/100**
-
-^164^th ^/r/scotch ^review
-
-/u/review_bot 'Oban'
