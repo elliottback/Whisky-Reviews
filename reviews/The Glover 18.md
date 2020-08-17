@@ -14,5 +14,3 @@ By the way, if you really want the 22 year which is like half Hanyu, it's still 
 I like the idea of ~~wasting~~ blending a Hanyu cask with Scotch, especially Longmorn.  It creates something unique and limited, and consumers are willing to pay a bit more to see what on earth those ~~nutheads~~ geniuses have made.  A bit pricier than I like, but a solid blend.
 
 **Rating: 90/100**
-
-^31st ^world ^whisky ^review

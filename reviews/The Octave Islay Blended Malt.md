@@ -12,5 +12,3 @@ A blend from Duncan Taylor, this was 17 years in oak (1997 - 2015) before spendi
 For some reason Tokyo is particularly infested with these bottles, and for me they offer the value of the late-20s Caol Ilas at a much more affordable price.  I think this blend is mostly Caol Ila anyway, although according to the DT website it's apparently 90% malt / 10% grain.
 
 **Rating: 94/100**
-
-^120^th ^/r/scotch ^review

@@ -14,5 +14,3 @@ Talisker is the first scotch that got me into whisky, the amazing 10 year old, a
 Not what you'd typically expect from a Talisker; it lacks the bite of the 10 and 25 year editions, and is overly rounded and generic.  No pepper, which is a big disappointment for me.
 
 **Rating: 69/100**
-
-^81st ^review

@@ -12,5 +12,3 @@ This is a quick review of the blend that's **"as soft and as smooth as a pig's n
 This is a perfectly inoffensive dram, and quite subtly blended.  It's fantastically cheap, and a great alternative for the typical blend drinker.  The catchphrase guarantees a joke when you bring it by.
 
 **Rating: 75/100**
-
-^107^th ^/r/scotch ^review

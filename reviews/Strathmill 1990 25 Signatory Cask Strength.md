@@ -14,5 +14,3 @@ From previous drinking, this absolutely does not handle a bit of water well and 
 It's also very singlemindedly a one-grapey-note whisky.
 
 **Rating: 72/100**
-
-^^177th ^/r/scotch ^review

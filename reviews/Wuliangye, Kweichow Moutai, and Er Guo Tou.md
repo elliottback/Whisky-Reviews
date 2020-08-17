@@ -1,8 +1,8 @@
 UncleTobys is [to blame with his moutai review](http://www.reddit.com/r/worldwhisky/comments/19i96r/review_kweichow_moutai/) so I foolishly promised to review the Chinese whisky I have lying about the home.  The nice stuff (Wuliangye/Moutai) is from my inlaws, but the ErGuoTou is a Beijing special I brought back myself.
 
-> White House officials warned President Richard Nixon to avoid the stuff during his 1972 visit to China. “Under no, repeat, no circumstances should the president actually drink from his glass in response to banquet toasts,” Alexander Haig, then an aide to Henry Kissinger, warned in a cable before Mr. Nixon’s arrival.
+> White House officials warned President Richard Nixon to avoid the stuff during his 1972 visit to China. "Under no, repeat, no circumstances should the president actually drink from his glass in response to banquet toasts," Alexander Haig, then an aide to Henry Kissinger, warned in a cable before Mr. Nixon's arrival.
 
->  “As the sweet fragrance of Moutai wafted across the room, the American guests became intrigued, grins appeared on their faces, and they were visibly happy and relaxed” is how the Communist Party’s official account described the evening.
+>  "As the sweet fragrance of Moutai wafted across the room, the American guests became intrigued, grins appeared on their faces, and they were visibly happy and relaxed" is how the Communist Party's official account described the evening.
 
 **Red Star ErGuoTou / 56% ABV / $1**
 

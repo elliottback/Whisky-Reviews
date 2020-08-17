@@ -14,5 +14,3 @@ This is an interesting example--it's *smooth* using the layman's lexigraphy--rou
 Still, there's nothing offensive here.  It's relaxing, warm; enveloping.  The finish is over too quickly; it dies in your mouth.  You don't feel much.
 
 **Rating: 83/100**
-
-^105^th ^/r/scotch ^review

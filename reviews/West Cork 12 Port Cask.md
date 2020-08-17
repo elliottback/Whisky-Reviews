@@ -12,5 +12,3 @@ I bought this because it was (a) cheap and (b) said **PORT CASK** finished, and 
 I cannot find anything redeeming about West Cork, and I feel totally let down on this cask.  It's so terrible I poured out my dram.
 
 **Rating: 0/100**
-
-^28th ^world ^whisky ^review

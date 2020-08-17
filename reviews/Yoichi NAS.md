@@ -17,8 +17,3 @@ I very much miss the days of cheap Yoichi with:
 The Yoichi Single Malt NAS is a well put-together, but boring, single malt.
 
 **Rating: 75/100**
-
-^31st ^world ^whisky ^review
-
-/u/review_bot 'Nikka'
-/u/review_bot 'Yoichi'

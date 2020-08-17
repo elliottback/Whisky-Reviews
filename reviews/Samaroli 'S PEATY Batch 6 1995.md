@@ -14,5 +14,3 @@ The first thing I noticed with this bottle was the very janky metal screwtop, wi
 They've tried to make a summery, light, peaty blend.  It works, I think, but it doesn't have any particularly interesting character.  You might call it smooth?  It's OK but for the price, I probably wouldn't want to buy it again.
 
 **Rating: 72/100**
-
-^134^th ^/r/scotch ^review

@@ -14,5 +14,3 @@ This is really a fantastic whisky, much like what I wish an oak-aged whisky coul
 This dram doesn't disappoint!
 
 **Rating: 93/100**
-
-^91st ^review

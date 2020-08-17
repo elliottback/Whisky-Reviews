@@ -14,5 +14,3 @@ Aged in oak & sherry, 2015 production date.  Almost certainly chill-filtered and
 This tastes like "whisky," but as a prototype/artifice, and not as a naturally developed product.  It's OK; it is kindof like Macallan in profile, it ticks the right boxes.  It doesn't do anything to excite or stimulate.
 
 **Rating: 66/100**
-
-^118^th ^/r/scotch ^review

@@ -12,5 +12,3 @@ This is an interesting bottle, NAS, sold only at the distillery and for some lim
 I hate on Japanese whisky because of the massive price runup, but the truth is that  it's also quite excellent.  This is a light, summery whisky that's quite delicious.
 
 **Rating: 84/100**
-
-^24th ^world ^whisky ^review

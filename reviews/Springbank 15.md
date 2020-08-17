@@ -14,7 +14,3 @@ This is the classic [Springbank 15](http://springbank.scot/whisky/springbank/15-
 This has got quite the funk; I'm not a fan at all.  It's slightly drinkable for me, I would most likely not buy it again.  Is it true that there is often a lot of batch variation in Springbank?  I've included the batch code above just in case.  
 
 **Rating: 61/100**
-
-^186th ^/r/scotch ^review
-
-/u/review_bot 'Springbank'

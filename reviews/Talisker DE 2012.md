@@ -12,5 +12,3 @@ This was distilled in 2001, bottled 2012 with the new "blue stripe" label.  Feat
 This is a fantastic Talisker expression--can't recommend it enough.  It tastes less like the sea than regular Talisker, but retains the mouthfeel and pepper.
 
 **Rating: 94/100**
-
-^64th ^review

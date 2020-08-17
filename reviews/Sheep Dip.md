@@ -13,8 +13,4 @@ The name comes from an insectiside that farmers would use on their label, "Sheep
 
 Uncomplicated, light (well, very light at 40%), very oaky, but subtle, unlike the overoakiness of a Dalmore 12.  It is only $40, and I don't review on price, but for the money it's worth a try.  There's less sherry than bourbon here by a long mile, but it's still a pleasant blend.
 
-@review_bot
-
 **Rating: 74/100**
-
-^93rd ^/r/scotch ^review

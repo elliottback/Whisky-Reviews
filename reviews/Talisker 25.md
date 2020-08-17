@@ -7,7 +7,7 @@ This is one of the last cask-strength Talisker 25 bottlings, bottled in 2005 (no
 The mood is a quiet, warm-for-NYC sunday afternoon listening to *Stadium Arcadium*.
 
 * **Color:** golden lion-mane
-* **Nose:** slowly opens up to camphor, thistle, crème and iodine, peat smoke
+* **Nose:** slowly opens up to camphor, thistle, crï¿½me and iodine, peat smoke
 * **Taste:** full bodied sweetness, vanilla ice cream, subdued white pepper, a hint of oak 
 * **Finish:** phenominal; full-grain leather, peat smoke, grapes
 
@@ -16,5 +16,3 @@ I highly recommend a dash of water in this--it really opens it up to deliciousne
 The first time I really liked whisky, I was trying a Talisker 10 because that's James Bond's favourite dram.  And I loved the fiery iodine, peat, and most of all pepper.  To this day, I recommend without reservation Talisker 10, 18 and my new affordable favourite, the Distiller's Edition aged in a bit of sherry.  The latter is affordable and fantastic.
 
 **Rating: 89/100**
-
-^88th ^review

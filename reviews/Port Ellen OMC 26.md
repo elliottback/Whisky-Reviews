@@ -14,5 +14,3 @@ For a 26 year old scotch, this one feels much younger, but still a tasty dram.  
 If you want to try Port Ellen, try an original bottling for best effect.
 
 **Rating: 78/100**
-
-^69th ^review

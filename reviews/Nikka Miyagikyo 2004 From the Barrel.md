@@ -19,9 +19,3 @@ It differs from regular Nikka "From the Barrel" in that on the label it says "ไป
 Every year Japanese whiskies are getting lighter in colour, casks are getting "seasoned", and age statements are going away as the few domestic distilleries try to keep up with global demand.  It's nice to try something from before Japanese whiskey was popular and oversold; this is a very nice, richer version of the current "From the Barrel". 
 
 **Rating: 91/100**
-
-^32nd ^world ^whisky ^review
-
-/u/review_bot 'Nikka'
-
-/u/review_bot 'Miyagikyo'

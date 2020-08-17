@@ -14,7 +14,3 @@ Sullivan's Cove actually sells and ships abroad directly from the distillery now
 I really like it!  I wish it were more around the $100 range, but it's a completely unique whisky product, so I will probably buy some bottle from the distillery every so often.
 
 **Rating: 86/100**
-
-^27th ^world ^whisky ^review
-
-/u/review_bot 'Sullivan\'s Cove'

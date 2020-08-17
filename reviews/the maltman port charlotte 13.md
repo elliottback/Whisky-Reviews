@@ -12,7 +12,3 @@ This is an exclusive IB Port Charlotte bottled for Japanese retailer Shinanoya. 
 PC is never a letdown, but this is fantastic!
 
 **Rating: 95/100**
-
-^126^th ^/r/scotch ^review
-
-/u/Review_Bot 'Port Charlotte'

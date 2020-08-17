@@ -16,5 +16,3 @@ Points in favour: cask-strength-ish (hey it's NAS!), it's fiery but rounded off 
 I'm a big fan of Caol Ila, but I'm finding this NAS blend a bit too gimmicky to represent a good value proposition.  It's interesting and challenging, but far from my favourite Caol Ila.  I would not want to drink this every day, or even every day I wanted to drink CS Caol Ila!
 
 **Rating: 74/100**
-
-^117^th ^/r/scotch ^review

@@ -10,7 +10,3 @@
 
 
 **Rating: /100**
-
-^^th ^/r/scotch ^review
-
-/u/review_bot ''

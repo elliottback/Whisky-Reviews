@@ -14,5 +14,3 @@
 I don't often buy blended whisky, but I picked this up because of the amazing colour, the seventeen year age statement, and the price!  It's thoroughly enjoyable, a nice buffed +5% ABV, and for a blended malt, quite complex.
 
 **Rating: 86/100**
-
-^172^nd ^/r/scotch ^review

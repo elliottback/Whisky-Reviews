@@ -12,7 +12,3 @@ So this is the stickied teaspooned Glenfiddich IB for r/scotch from FineDrams, w
 This is a rough Glenfiddich; there must be some kind of production pressure to run the tails wide.  Drinking 10ml feels like I am already poisoning my body, somehow.  With their regular releases they can blend away and age away the imperfections.  The general paucity of single cask Glenfiddichs leads me to believe that their process is poor and they are just pumping out as much as they can for their OB blends.
 
 **Rating: 58/100**
-
-^151^st ^/r/scotch ^review
-
-/u/Review_Bot 'Glenfiddich'

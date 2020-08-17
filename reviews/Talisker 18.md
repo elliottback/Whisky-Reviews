@@ -12,7 +12,3 @@ A decade ago, Talisker 10, favoured by James Bond, was my gateway to an apprecia
 This is quite a nice, peaceful, and uncomplicated whisky; great Talisker notes but far more muted than the 10 year old.  It's quite lovely, and very relaxing.
 
 **Rating: 85/100**
-
-^130^th ^/r/scotch ^review
-
-/u/Review_Bot 'Talisker'

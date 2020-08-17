@@ -13,8 +13,4 @@ This is the embrace of the queen of a hive that has lasted for thousands of year
 
 I think Port Ellen between the 9th and 12th releases has passed the inflection point at which the earthiness of the oak aging detriments the whisky.  The 9th edition is still fiery and young, the 10/11th editions are stateful, and the 12th edition is full and mature.  Going forward, we may not see a better vatting.
 
-**Rating: 93/100** 
-
-^40th ^review
-
-[Homepage](http://www.whisky.com/brands/port_ellen_brand.html) | [Review](http://www.whiskynotes.be/2012/port-ellen/port-ellen-12th-release-1979/) | Buy @ [Wine-Searcher](http://www.wine-searcher.com/find/port+ellen+12)
+**Rating: 93/100**

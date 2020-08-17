@@ -17,4 +17,4 @@ While I am excited to defray my moving expenses, I would really love to operate 
 
 **For those interested in "investing" in scotch, be warned.**  This is only $4,500 of initial capital; scaling up to a "reasonable" investment amount of $50,000 would be a full time job and in many cases, impossible due to lack of stock.  Three years ago, the Port Ellens seemed like great buys; they were.  The Karuizawa was a random purchase which turned out to become quite popular recently.  Investing in scotch is often a popularity contest, and much like the equities market, difficult to time (some would say impossible).   Other factors will collude to make your life difficult, such as storage, bottle fakes, breakage, lost shipments, government actions (see Chinese political gifts), and more.
 
-Sláinte.
+Slainte.

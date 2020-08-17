@@ -14,5 +14,3 @@ I am very regularly disappointed in blends, but I am also a sucker for interesti
 This is an excellent sherried blend.
 
 **Rating: 90/100**
-
-^171^st ^/r/scotch ^review
