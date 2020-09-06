@@ -18,7 +18,3 @@ This has a lot code of 16/03/15.  So what is it?
 *This one* is Laphroaig.  Who knows what other batches / releases could be.  This is actually quite remarkable, it's like a punchier cask-strength Laphroaig quarter cask!
 
 **Rating: 92/100**
-
-^166^th ^/r/scotch ^review
-
-/u/review_bot 'Laphroaig'

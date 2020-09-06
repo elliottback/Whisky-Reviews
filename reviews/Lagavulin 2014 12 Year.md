@@ -14,7 +14,3 @@ This was one of my favourite whiskies before I moved to Japan in 2015, and I rat
 The 2014 Lagavulin 12 absolutely stands up to my memories of it--it's got a really refined, pure approach with the peat, and it tastes the cleanest Islay I've had the pleasure of trying.  I have a bottle of the 2019 special releases to try, but I haven't cracked it yet, so here's hoping the boat begins to turn.
 
 **Rating: 95/100**
-
-^183rd ^/r/scotch ^review
-
-/u/review_bot 'Lagavulin'

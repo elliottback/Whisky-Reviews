@@ -11,8 +11,4 @@ This bottle is from batch *003 Jan.11*, and is remarkably pleasant at cask stren
 
 I love the oily mouthfeel, just a notch below CS Springbanks. This 10 yr Laphroaig marries iodine, peat, and phenols in its cask-strength charybdis.  While I don't always have a bottle on hand--my goto Islays being Lagavulin and Ardbeg--it's probably because once I open a bottle of Laphroaig it's gone too quickly!
 
-**Rating: 91/100** 
-
-^14th ^review
-
-[Homepage](http://www.laphroaig.com/whiskies/cask-strength.aspx) | [Reviews](http://www.connosr.com/reviews/laphroaig/laphroaig-cask-strength-10-year-old/) | Buy @ [Wine-Searcher](http://www.wine-searcher.com/find/laphroaig+10+cask/0)
+**Rating: 91/100**

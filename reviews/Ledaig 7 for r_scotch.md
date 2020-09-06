@@ -14,5 +14,3 @@ It's quite an interesting little dram, this one.  Young, fiery, with few of the 
 I'm hoping reddit makes another one!
 
 **Rating: 81/100**
-
-^104th ^review

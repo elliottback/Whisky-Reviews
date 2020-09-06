@@ -10,15 +10,13 @@ Our friend [Devil juice reviews it on Master of Malt](http://www.masterofmalt.co
 
 I have higher hopes:
 
-* **Color:** rosé
+* **Color:** rosÃ©
 * **Nose:** fruity berries (are there any other kind?), humidity, tar and peat smoke, burning rubber that is not aflame more more charring from friction
 * **Taste:** flame and smoke on the roof of my mouth, hibiscous farmed on blood, lemon
-* **Finish:** crème brûlée and menthol
+* **Finish:** creme brulee and menthol
 
 This stuff is just great.  It's the difference between me dressed in jeans and a holey T-shirt with two day's stubble and putting on that sharp gray suit, hand-woven tie with a haircut yesterday after hitting the gym all week.
 
 Port really dresses Laphroaig up, and it's *suave*.
 
 **Rating: 96/100**
-
-^77th ^review

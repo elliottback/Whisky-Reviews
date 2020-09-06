@@ -16,5 +16,3 @@ You'll note that the cork is starting to turn to powder, which is unfortunate...
 This is not my favourite Laphroaig, but it's a very interesting one.  Aside from the issue with the lifespan of this cork, it's fantastic, and poised interestingly between the young fiery stuff and the different wooded expressions.  There's more gravitas and intensity present.  As usual, Signatory Cask Strength maintains its reputation for excellence.
 
 **Rating: 90/100**
-
-^85th ^review

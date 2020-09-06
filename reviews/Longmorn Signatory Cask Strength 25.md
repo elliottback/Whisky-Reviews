@@ -14,7 +14,3 @@ This one is a Longmorn, distilled 6/1/5/1990 and bottled 9/8/2015, matured in a 
 This is a tasty bourbon-cask Longmorn, but the extra age in bourbon doesn't seem to do much for Longmorn; I'd much prefer some time in sherry. There's also a little bit of an off-character in the tasting note on the bite.
 
 **Rating: 88/100**
-
-^123^rd ^/r/scotch ^review
-
-/u/Review_Bot 'Longmorn'

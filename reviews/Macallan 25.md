@@ -14,5 +14,3 @@ Honestly, this is nothing more than OK.  My thesis that older whisky does not ma
 The Macallan CS with its brighter tones and edge, or the incredibly rich Aberlours are far better, and a fraction of the price. I've been drinking peatier scotches recently, so my palate is perfectly tuned to appreciate a good sherried whisky, but this isn't one.
 
 **Rating: 81/100**
-
-^96th ^review

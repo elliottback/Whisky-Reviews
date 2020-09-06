@@ -14,5 +14,3 @@ Oh, and this lovely 1L bottle boasts a 15 year age statement, which is the first
 This is not worth drinking neat.  Put it in ice, after you've had a few drams, and enjoy the inoffensive, slightly peaty, Johnnie Walker blend.
 
 **Rating: 59/100**
-
-^90th ^/r/scotch ^review

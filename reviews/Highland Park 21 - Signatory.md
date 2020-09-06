@@ -14,5 +14,3 @@ Definitely not a first-fill sherry butt, the spirit is too golden, and tastes mo
 For anyone wondering if Signatory is a good IB--if you can afford it, and the product is at cask strength, I can't recommend it more.
 
 **Rating: 81/100**
-
-^60th ^review

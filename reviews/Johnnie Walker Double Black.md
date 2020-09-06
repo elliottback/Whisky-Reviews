@@ -14,5 +14,3 @@ Just returned from a 2 week vacation in Japan (Osaka, Kyoto, Kobe) and Shanghai,
 I've got to say, for the price, this is pretty decent.  It's surely no Green, but it's tasy and has a lil' bit o' smoke.  It's a perfect "I've had enough but I want one more" dram.
 
 **Rating: 70/100**
-
-^80th ^review

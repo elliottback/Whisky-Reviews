@@ -51,4 +51,6 @@ Wuliangye actually has more market share (45%) in China than Maotai (30%).  The 
 
 **Rating: 63/100**
 
-[Home Page](http://www.wuliangye.com.cn/pages/product.html) | [Buy Online](http://www.wine-searcher.com/find/wuliangye)
+[Home Page](http://www.wuliangye.com.cn/pages/product.html)
+
+TODO: split me

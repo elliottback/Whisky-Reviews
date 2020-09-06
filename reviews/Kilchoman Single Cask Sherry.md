@@ -14,5 +14,3 @@ This is a banger, it just keeps going.  As it opens up, you get more and more su
 Also I am days smoke free (shoutout to [r/e_cigs](http://www.reddit.com/r/electronic_cigarette/comments/27dp5a/the_daily_vape_pics_thread_20140605/ci02at0)), so I can taste things again.
 
 **Rating: 93/100**
-
-^100th ^review

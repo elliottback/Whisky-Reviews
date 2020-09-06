@@ -21,7 +21,3 @@ There is also a horrible plastic cap + holographic tamper seal + Polish tax seal
 A thinner, less integrated version of the old Macallan CS, it's definitely a lot lighter in colour, and hasn't been given enough time in the wood to really develop significant complexity.
 
 **Rating: 83/100**
-
-^167^th ^/r/scotch ^review
-
-/u/review_bot 'Macallan'

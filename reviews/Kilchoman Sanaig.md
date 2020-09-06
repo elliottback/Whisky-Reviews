@@ -12,5 +12,3 @@ This is a new NAS lineup from Kilchoman to stock alongside their Machir Bay rele
 Well put-together, nice sherry influence ontop of the bourbon giving it a bit more sweetness, and I appreciate the extra ABV.  Personally, I don't find this to be a standout, but it's good.
 
 **Rating: 80/100**
-
-^122^nd ^/r/scotch ^review

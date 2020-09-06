@@ -12,5 +12,3 @@ I was in Japan/Shanghai the last week, and super busy with the inlaws and tourin
 This is pretty fantastic--and makes me want to buy a bottle of the 21 next time I'm back :D
 
 **Rating: 92/100**
-
-^83rd ^review

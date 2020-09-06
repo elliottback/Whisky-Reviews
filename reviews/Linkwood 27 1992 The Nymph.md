@@ -14,7 +14,3 @@ Some additional information about this is available on [the original listing](ht
 Relaxing, but over-oaked.  I feel a bit like I'm chewing on my cutting board.
 
 **Rating: 72/100**
-
-^166^th ^/r/scotch ^review
-
-/u/review_bot 'Linkwood'

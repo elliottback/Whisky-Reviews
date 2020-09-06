@@ -13,11 +13,9 @@ If you open up the photo, you can compare the color of the 12 against the 16 tak
 
 This is my favourite scotch, and the only one my wife will drink.  Lagavulin 12 is bottled at cask strength, released in limited editions every year, and every drop is amazing.  You feel your thirst is quenched, the smell of the forest in your nose, as you dip into a stream to quench your thirst--overcast, the cloudy sky will not release your bounty.  Ennervated and sated, you feel the earth inside you.  The elder gods awaken.  Bankai.
 
-**Rating: 98/100** 
+**Rating: 98/100**
 
-^22nd ^review
-
-[Homepage](http://www.malts.com/index.php/en_us/Our-Whiskies/Lagavulin/The-Family) | [Review](http://www.connosr.com/reviews/lagavulin/lagavulin-12-year-old-bot-2010-10th-release/) | Buy @ [Wine-Searcher](http://www.wine-searcher.com/find/lagavulin+12)
+[Homepage](http://www.malts.com/index.php/en_us/Our-Whiskies/Lagavulin/The-Family)
 
 **Lagavulin 16 / 43% ABV / $70**
 
@@ -36,6 +34,6 @@ I've thought about this a lot--what if the 16 came in Cask Strength?  It wouldn'
 
 **Rating: 87/100** 
 
-^23rd ^review
+[Homepage](http://www.malts.com/index.php/en_us/Our-Whiskies/Lagavulin/The-Family)
 
-[Homepage](http://www.malts.com/index.php/en_us/Our-Whiskies/Lagavulin/The-Family) | [Review](http://www.connosr.com/reviews/lagavulin/lagavulin-16-year-old/) | Buy @ [Wine-Searcher](http://www.wine-searcher.com/find/lagavulin+16)
+TODO: split this

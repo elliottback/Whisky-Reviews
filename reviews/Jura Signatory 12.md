@@ -14,5 +14,3 @@ This dram cements my feeling that Jura is piss distilled hooch by some island mo
 Friends don't let friends drink Jura.
 
 **Rating: 0/100**
-
-^111^th ^/r/scotch ^review

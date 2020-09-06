@@ -28,4 +28,4 @@ I appreciate Laphroaig 18's higher ABV; it's a solid dram worth trying.  Probabl
 
 Rating: 90/100 
 
-^55th ^and ^56th ^reviews
+TODO: split me

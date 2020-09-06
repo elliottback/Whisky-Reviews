@@ -14,5 +14,3 @@ A celebratory bottling of origin Cairdeas (13-21 yr) with newer Laphroaig spirit
 This is a delicious, lighter, *friendlier* Laphroaig--the Cask strength is essential.  It's unusually pleasant for a single malt that has often garnered accolades like "bandaids", "rubbing alcohol", and "tar."  The cleanness of this malt is improved, but yet nowhere near the Lagavulin 12.
 
 **Rating: 87/100**
-
-^72nd ^review

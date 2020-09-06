@@ -12,7 +12,3 @@ This is some kind Laphroaig travel retail gimmick where a blend of bourbon barre
 This is a Laphroaig for people that don't like Laphroaig, because it is far sweeter than the 10 or QC or 10CS, and far less punchy on all the Islay characteristics.  I bought it only because the local was out of QC and I hadn't tried it yet--I would not purchase again unless it went < $30.
 
 **Rating: 65/100**
-
-^124^th ^/r/scotch ^review
-
-/u/Review_Bot 'Laphroaig'

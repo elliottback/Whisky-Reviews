@@ -12,5 +12,3 @@ The Single Malts of Scotland married three hogsheads and 1 sherry butt to make p
 I think this is my first r/Scotch Mortlach review, but I don't hate it!  I think some of the IB stuff I have tried at festivals that is 20+ years of first-fill sherry comes on a bit too one-dimensional/sherried for me, this is perfectly nice.
 
 **Rating: 90/100**
-
-^143^rd ^/r/scotch ^review

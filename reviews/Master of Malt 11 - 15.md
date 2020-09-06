@@ -24,7 +24,7 @@ South African single-grain whisky, made with local Cape Mountains water.
 * **Taste:** toffee, syrup, and rounded oak
 * **Finish:** coconut, minerality, rich cream
 
-No age statement here, but this is a smooth sipping-on-ice sort of whisky that goes down like a piña colada.  It's inoffensive, and while I'd never buy it, I've had far worse Canadians.
+No age statement here, but this is a smooth sipping-on-ice sort of whisky that goes down like a piï¿½a colada.  It's inoffensive, and while I'd never buy it, I've had far worse Canadians.
 
 **Rating: 58/100** 
 
@@ -70,4 +70,4 @@ This is the best sample of this batch, and it's quite excellent.  It's a fiery l
 
 **Rating: 62/100** 
 
-^41st, ^42nd, ^43rd, ^44th, ^and ^45th ^reviews
+TODO: split me

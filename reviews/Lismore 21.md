@@ -16,5 +16,3 @@ Like so many of these fat-top-cork bottles, the cork is not holding up well.  It
 Final verdict--pass.  There's too many off notes, and no power.  And it tastes too "hot", this is hangover material.
 
 **Rating: 67/100**
-
-^87th ^review

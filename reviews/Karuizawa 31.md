@@ -12,5 +12,3 @@ This Karuizawa K&L Exclusive single-barrel cask-strength is 31 years old, distil
 This whisky is confusing; simulataneously super-hot, yet beautifully well rounded.  It's the closest scotch I've tasted to a quality bourbon, but it's still identifyable as a scotch-style whisky.  I don't know what to think, except lament that it doesn't exist anymore.
 
 **Rating: 92/100**
-
-^94th ^review

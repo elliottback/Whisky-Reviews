@@ -5,7 +5,7 @@
 A quick Islay review of the now discountinued 15 year Laphroaig, which has been replaced by the 18 year old.  Essentially the 10 year old, with five years on it.  Sadly diluted to 43%, but still hopeful!
 
 * **Color:** amber, about the same as the submission screen
-* **Nose:** peat smoke, turpentine, salt, lush vanilla and brûlées
+* **Nose:** peat smoke, turpentine, salt, lush vanilla and brï¿½lï¿½es
 * **Taste:** plastic, aerosolized tape adhesives, orange peel, cedarwood, jolly ranchers
 * **Finish:** uncomplicated, tangy, smokey
 
@@ -16,5 +16,3 @@ A relic!
 @review_bot 'Laphroaig'
 
 **Rating: 86/100**
-
-^92nd ^/r/scotch ^review

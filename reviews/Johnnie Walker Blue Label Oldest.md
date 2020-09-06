@@ -12,7 +12,3 @@ This is a 1990s bottle of JWB, number N32353 that I picked up secondhand in Japa
 This is a pretty mediocre blend / blast from the past, and it really reinforces my opinion that Diageo will sell whatever the market can bear.  I was hoping a now ~30 years older version of JWB would be interesting, but it's one-dimensional and boring.  It's not even smooth.
 
 **Rating: 62/100**
-
-^^179th ^/r/scotch ^review
-
-/u/review_bot 'Johnnie Walker'

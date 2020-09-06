@@ -14,5 +14,3 @@ A young bottled widely-available "limited" release celebrating the 200th anniver
 For such a young whisky with a nose that I do not like at all--it feels very young and unrefined--the taste is quite good.  I do prefer the Lagavulin 12 to the 16, and both the 8.
 
 **Rating: 87/100**
-
-^121^st ^/r/scotch ^review

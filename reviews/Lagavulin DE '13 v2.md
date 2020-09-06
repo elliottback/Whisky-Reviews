@@ -14,5 +14,3 @@ This has been matured in PX (Pedro Ximenez) sherry casks for a second barrel mat
 This is quite a pleasant, evening dram.  Great with a book.  It's a bit out of balanced--the sherry doesn't take as much as it should, as I find with all the sherried Lagavulins, but it does take something out of the pure spirit, muddying and diluting the Islay.
 
 **Rating: 82/100**
-
-^101st ^review

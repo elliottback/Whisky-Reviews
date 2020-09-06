@@ -14,5 +14,3 @@ This is also my first Longmorn!  I'm still looking for a whisky distilled on my 
 I've been having good luck with the IB stuff that KLWines has been bringing in, and this Longmorn is no exception, even if its label doesn't quite say it's sherried.
 
 **Rating: 90/100**
-
-^93rd ^review

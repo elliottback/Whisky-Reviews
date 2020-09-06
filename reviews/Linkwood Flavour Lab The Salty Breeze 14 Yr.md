@@ -16,7 +16,3 @@ I hate 500ml bottles with a passion, so my friend and I set out to buy 8 of thes
 This is probably one of the best Linkwood's I've had the pleasure of trying.
 
 **Rating: 94/100**
-
-^155^th ^/r/scotch ^review
-
-/u/Review_Bot 'Linkwood'

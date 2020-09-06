@@ -12,7 +12,3 @@
 This bottling of Imperial has just the slightest hint of the trademark rich, creamy butteriness that people loved the lost distillery for.  Overall, disappointing, and a tired cask.
 
 **Rating: 72/100**
-
-^153^rd ^/r/scotch ^review
-
-/u/Review_Bot 'Imperial'

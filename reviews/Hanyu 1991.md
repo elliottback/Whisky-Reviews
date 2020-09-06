@@ -12,5 +12,3 @@ I think I'm excited to try a Hanyu, never had one before but since I'm moving to
 This is a pleasant, unimposing, reasonable complex Japanese malt that tastes a lot like a Longmorn.
 
 **Rating: 86/100**
-
-^21st ^world ^whisky ^review

@@ -26,4 +26,3 @@ Bottle notes:
 PS: Macallan announced that their [10, 12, 15, and cask strength](http://www.reddit.com/r/Scotch/comments/vqn7b/macallan_to_replace_101215_yro_with_nas_scotches/) lines are dead.
 
 **Rating: 96/100**
-<sub>11th review</sub>

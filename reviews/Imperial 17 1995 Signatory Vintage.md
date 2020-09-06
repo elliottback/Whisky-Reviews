@@ -14,7 +14,3 @@ This bottle suffered a dry cork, but it was easy to replace with a loaner and it
 This younger Imperial still has some rough notes to work off, but I like it!
 
 **Rating: 86/100**
-
-^164^th ^/r/scotch ^review
-
-/u/review_bot 'Imperial'

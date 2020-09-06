@@ -20,7 +20,3 @@ Carn Mor Bequest is the Morrison & Mackay IB label, and it describes itself a bi
 This is a decent Imperial, it's super light and floral, and it's got some richness and buttery flavour/texture.  It's also way too expensive for what it is!
 
 **Rating: 85/100**
-
-^173^rd ^/r/scotch ^review
-
-/u/review_bot 'Imperial'

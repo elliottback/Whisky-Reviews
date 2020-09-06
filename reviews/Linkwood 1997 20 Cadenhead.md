@@ -16,7 +16,3 @@
 This is pleasant, uncomplicated slightly-oaked Linkwood which at this price point is compelling. Pretty much the classic bourbon barrel experience. 
 
 **Rating: 85/100**
-
-^173^rd ^/r/scotch ^review
-
-/u/review_bot 'Linkwood'

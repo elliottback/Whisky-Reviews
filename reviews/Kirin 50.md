@@ -18,5 +18,3 @@ I think this is more of a mixer whisky (which is great for the Japanese market) 
 That said, it's very hot, young, grain whisky.  To the point where it's much more offensive than other cheap blends.
 
 **Rating: 36/100**
-
-^23rd ^world ^whisky ^review

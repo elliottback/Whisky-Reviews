@@ -12,7 +12,3 @@
 The previous Imperial at 17 years was nice, but 6 years and cask-strength does quite a lot for it, it's infinitely more complex and has a really lovely round, rich mouthfeel.
 
 **Rating: 89/100**
-
-^165^th ^/r/scotch ^review
-
-/u/review_bot 'Imperial'

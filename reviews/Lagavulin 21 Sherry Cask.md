@@ -20,5 +20,3 @@ Sessioning it produces a more enjoyable experience, it takes some time to open u
 For a little more analysis, [this blog has a pretty good write up](http://scotchhobbyist.com/2009/06/20/lagavulin-21/).
 
 **Rating: 71/100**
-
-^78th ^review

@@ -12,5 +12,3 @@ An amazing version of the 25 year old at cask strength, there's not a lot of thi
 I'm amazed at how well the sherry casks force a lovely bouquet through this.  This is the best Laphroaig I've ever had (probably the last, with this price point); the perfect mix of peaty punchy rubber bands and burning tires with sherried fruits in the highland style.  Unlike OOG, this is a bit heavier on the sweet/sherry side, but it's perfectly balanced.  Amazing stuff!!
 
 **Rating: 98/100**
-
-^58th ^review

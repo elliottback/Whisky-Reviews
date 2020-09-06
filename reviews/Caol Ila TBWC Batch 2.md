@@ -1,4 +1,4 @@
-**That Boutique-y Whisky Company Caol Ila - Batch 2 / 55.0%**
+**Caol Ila - That Boutique-y Whisky Company Batch 2 / 55.0%**
 
 *Tasted with a bit of filtered tapwater*
 

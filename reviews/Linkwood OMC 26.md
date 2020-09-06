@@ -12,7 +12,3 @@ One of 231 bottles from a refill hogshead #HL17212 distilled in April 1993 and b
 This is a lovely Linkwood, for a nice quiet relaxing evening.
 
 **Rating: 82/100**
-
-^158^th ^/r/scotch ^review
-
-/u/Review_Bot 'Linkwood'

@@ -12,7 +12,3 @@ I haven't tried any of *The Distillery Reserve Collection* yet, a relatively new
 This definitely needs water to open up, but it's excellent.  It's only 12 years, but in a proper first-fill sherry cask, it's a bomb.  This butt would make an excellent 20+ YR second-fill contribution, hopefully Chivas doesn't try to milk it again for a quick turnaround ;)
 
 **Rating: 95/100**
-
-^169^th ^/r/scotch ^review
-
-/u/review_bot 'Longmorn'

@@ -12,7 +12,3 @@ This lovely dram was distilled on 18.09.1995 and bottled 18.02.2016 after sittin
 This has that nice, rich, buttery Imperial classic flavour that I like to see.  It would be better at cask strength, but thanks to no chill-filtration, it's quite a nice dram for reading.
 
 **Rating: 85/100**
-
-^163^rd ^/r/scotch ^review
-
-/u/review_bot 'Imperial'

@@ -12,5 +12,3 @@ This is made from Islay local barley peated to 40PPM, non-chill-filtered or colo
 I am not particularly impressed with this offering; although it's OK it seems to lack the vivacity and mouthfeel you expect from Bruichladdich's Port Charlottes.
 
 **Rating: 71/100**
-
-^127^th ^/r/scotch ^review

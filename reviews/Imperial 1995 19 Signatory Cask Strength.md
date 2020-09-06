@@ -14,7 +14,3 @@ All natural, no chill-filtration.
 This is pretty much classic '95 Imperial except with weird "fresh out the dyer" rubbery off-notes!
 
 **Rating: 79/100**
-
-^^178th ^/r/scotch ^review
-
-/u/review_bot 'Imperial'

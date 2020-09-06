@@ -9,7 +9,6 @@ Some details about the bottle:
 * 48% ABV
 * Travel exclusive
 
-
 And onto the review, tasted neat!
 
 * **Color**: very much like Laphroaig QC, perhaps slightly darker
@@ -18,10 +17,6 @@ And onto the review, tasted neat!
 * **Finish**: smoke, long, and sensual, sweetness lingers 
 
 
-
 While this bottle was fairly cheap, I think around $65 USD, I prefer it less than other Laphroaigs. It has been rounded off by the sherry maturation, but more in a way that dulls the fiery spirit without imparting much sherry characteristic. 
 
-
 **Rating:** 86/100
-
-^84th ^review

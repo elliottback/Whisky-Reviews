@@ -14,7 +14,3 @@ I've always liked Islay in Port--how does this stack up?
 This is quite lovely; the port influence works very well with Kilchoman spirit.  It's a sweet, relaxing dram.  It's downsides are a lack of complexity and a bit of age to round out the rough bits.
 
 **Rating: 82/100**
-
-^171^st ^/r/scotch ^review
-
-/u/review_bot 'Kilchoman'

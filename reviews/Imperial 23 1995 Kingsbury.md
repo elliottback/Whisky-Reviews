@@ -14,7 +14,3 @@ I have not reviewed any Imperial yet, but I like it--it's a rich, creamy, malty 
 Think like a super-creamy/slightly-fruity Longmorn and you've got Imperial, at least this one.  I'm growing quite fond of the shuttered distillery, so if you have any recommendations for non-closed, and therefore, not super-expensive whiskies that have a similar profile, please let me know!
 
 **Rating: 92/100**
-
-^146^th ^/r/scotch ^review
-
-/u/Review_Bot 'Imperial'
