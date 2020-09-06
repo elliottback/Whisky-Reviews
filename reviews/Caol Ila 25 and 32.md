@@ -13,8 +13,6 @@ There's not much to fault about an OB, CS Caol Ila save perhaps its price.  Like
 
 **Rating: 93/100**
 
-^109^th ^/r/scotch ^review
-
 **Caol Ila 32 / 57.1% / $234**
 
 *Tasted neat*
@@ -30,4 +28,4 @@ This is a really fascinating example of what happens when you let whisky sit in 
 
 **Rating: 72/100**
 
-^110^th ^/r/scotch ^review
+TODO: split me

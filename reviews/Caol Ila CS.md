@@ -12,5 +12,3 @@ From Port Askaig, this is a NAS Caol Ila at an incredible 61%.  It's light, peat
 This tastes a lot like a rounded out Bunnahabhain, but with less sharpness, and more creamy vanillins.  If you like Caol Ila it's a must try, but it's surely much much younger than OB 12 year, I'd guess around 6-7 years old.
 
 **Rating: 83/100**
-
-^74th ^review

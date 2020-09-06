@@ -11,8 +11,4 @@ This curious Islay from Bruichladdich is peated to just 3ppm, matured in first/r
 
 This one is all sugar-and-no-spice.  It's like the icecream of scotch, except it tastes better than that sounds.  It has good balance; you won't get overwhelmed by the sweetness/creaminess, but it's walking a tighrope over Mordor (Sauron loves sweets!).  It's enjoyable, but I probably won't buy it again.
 
-**Rating: 78/100** 
-
-^16th ^review
-
-[Reviews](http://www.forpeatsake.com/Bruichladdich/Bruichladdich+12+Years+Old/) | Buy @ [Wine-Searcher](http://www.wine-searcher.com/find/bruichladdich+12)
+**Rating: 78/100**

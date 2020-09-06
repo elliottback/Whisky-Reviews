@@ -28,7 +28,3 @@ Their label tasting notes:
 This is tolerable. It's quite estery and would have benefited, I think, from another 5 years in the wood.
 
 **Rating: 71/100**
-
-^191st ^/r/scotch ^review
-
-/u/review_bot 'Benrinnes'

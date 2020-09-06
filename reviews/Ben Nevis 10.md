@@ -12,7 +12,3 @@ This is a new standard release of Ben Nevis at 10 years and normal strength.  It
 This is pleasant but fairly forgettable.  I'd buy it again, but it's more "what you would of as Scotch" than a super-unique final product to me.
 
 **Rating: 70/100**
-
-^139^th ^/r/scotch ^review
-
-/u/Review_Bot 'Ben Nevis'

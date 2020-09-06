@@ -14,5 +14,3 @@ This is one of Islay's less appreciated distilleries, and **I AM IN THE MOOD FOR
 This is a malt more complex than I am capable of appreciating, but to my current preferences it's tasty and interesting.  This is my second Bunna review, but I'm looking forward to trying more of these in the future!
 
 **Rating: 91/100**
-
-^108^th ^/r/scotch ^review

@@ -12,7 +12,3 @@ This appears to be an IB created by Japanese Bottler [Distilleries Collection](h
 I am not sure what kind of Sherry cask this sat in, but it's not my cup of tea.  The perils of Single Cask small IB runs...
 
 **Rating: 35/100**
-
-^140^th ^/r/scotch ^review
-
-/u/Review_Bot 'Ben Nevis'

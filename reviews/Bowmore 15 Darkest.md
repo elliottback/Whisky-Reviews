@@ -12,5 +12,3 @@ It's no suprise to regulars of this sub that I **passionately hate Bowmore 10/12
 OK, I've finally found a regular issue Bowmore I like, this is actually quite amazing.  It's not as clean as the Laphroaig Portwood, but it's a delicious blending of the peatier side of our universe with the sweeter, sherried side.
 
 **Rating: 93/100**
-
-^115^th ^/r/scotch ^review

@@ -12,6 +12,3 @@ What makes the Oog so special?  This one is a marriage of young bourbon-aged (li
 I think it would be a great candidate for a community review down the line!
 
 **Rating: 98/100**
-<sub>12th review</sub>
-
-[Homepage](http://www.ardbeg.com//ardbeg/whisky/ardbeg-uigeadail) | [Reviews](http://www.forpeatsake.com/Ardbeg/Ardbeg+Uigeadail/) | Buy @ [Ardbeg](http://www.ardbeg.com/shop/ardbeg-uigeadail.html) or [KLWines](http://www.klwines.com/detail.asp?sku=1011309)

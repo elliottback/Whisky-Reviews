@@ -14,7 +14,3 @@ I haven't seen 12 year Caol Ila bottled for the Signatory CS line before, but I'
 I've enjoyed their older revisions in the past, but these younger bottles are fantastic value!
 
 **Rating: 90/100**
-
-^157^th ^/r/scotch ^review
-
-/u/Review_Bot 'Caol Ila'

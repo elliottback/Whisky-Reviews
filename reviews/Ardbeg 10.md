@@ -13,6 +13,4 @@ I enjoy this dram when I need a break from Uigeadail or more complicated fare.  
 
 **Rating: 89/100**
 
-^106^th ^/r/scotch ^review
-
 Oh, I was listening to Big Pun while I wrote this...

@@ -12,5 +12,3 @@ You trippy mane?  This was distilled '97 and bottled in '11, #221 of #398.  Natu
 These guys need a more accessible name ^yeah^ho.  That doesn't diminish the quality and purity of this Islay scotch, which is delicious.
 
 **Rating: 89/100**
-
-^70th ^review

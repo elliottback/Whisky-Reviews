@@ -14,5 +14,3 @@ How does this stack up? Laphroaig QC is my daily dram; I love a good QC!
 Delicious.
 
 **Rating: 91/100**
-
-^119^th ^/r/scotch ^review

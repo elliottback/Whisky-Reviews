@@ -14,5 +14,3 @@ I consider Caol Ila 12 to be one of my "every other day" drams; for the top of y
 That's not to say this is bad--it's quite a nice Islay.  But if you are a Caol Ila fan, the real value tends to be in the older range.
 
 **Rating: 85/100**
-
-^116^th ^/r/scotch ^review

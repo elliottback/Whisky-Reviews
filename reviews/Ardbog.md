@@ -12,5 +12,3 @@ This is a lovely vatting of young 10 yr Ardbeg matured in a mixture of bourbon (
 * **Finish:** quick, phenolic grapes
 
 **Rating: 93/100**
-
-^71st ^review

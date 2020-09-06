@@ -14,5 +14,3 @@ This is quite tasty, but feels younger than it is on the front.  After that it r
 **Rating: 86/100**
 
 ^125^th ^/r/scotch ^review
-
-/u/Review_Bot 'Caol Ila'

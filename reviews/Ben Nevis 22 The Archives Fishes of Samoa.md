@@ -14,7 +14,3 @@ I've been seeing lots of booths from[ Whiskybase's IB label "The Archives"](http
 **Rating: 92/100**
 
 This was a real treat and a fantastic companion to reading late in the evening.  I'm looking forward to try more from *The Archives* when I see them in my part of the world!
-
-^152^nd ^/r/scotch ^review
-
-/u/Review_Bot 'Ben Nevis'

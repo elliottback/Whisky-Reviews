@@ -12,5 +12,3 @@ An oak-aged, Indian, cask-strength, peated scotch?  Amazing.  This is the '09 li
 I'm fond of this--it's oxidized a bit of peat away since I've had it open too long, but it's a fantastically mellow pated world whisky.  It's the perfect stately counterpart to the young peated Hakushu.
 
 **Rating: 83/100**
-
-^82nd ^review

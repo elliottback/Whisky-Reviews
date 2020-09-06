@@ -4,7 +4,7 @@
 
 This was released on June 2nd, 2012 to celebrate and promote Ardbeg!  They'll be doing it again next year, and if you don't feel like buying a bottle, you can go [like them on Facebook](https://www.facebook.com/Ardbeg) and attend a free Ardbeg party near you:
 
-> It was an Olympic effort from all concerned. All over the globe and on Islay, people ran, swam, jumped and drank Ardbeg. Mostly drank Ardbeg. And now we’ve got our breath back, we’d like to thank all those near and far that made the inaugural Ardbeg Day such a monumental event. And don’t forget, we’ll be doing it all again next year so please save the date – Saturday 1st June 2013
+> It was an Olympic effort from all concerned. All over the globe and on Islay, people ran, swam, jumped and drank Ardbeg. Mostly drank Ardbeg. And now weï¿½ve got our breath back, weï¿½d like to thank all those near and far that made the inaugural Ardbeg Day such a monumental event. And donï¿½t forget, weï¿½ll be doing it all again next year so please save the date ï¿½ Saturday 1st June 2013
 
 Since they ran 12,000 bottles, you should be able to find it.  It's a vatting of two different styles of Ardbeg thrown together in ex-sherry casks for the final 6 months.
 
@@ -15,8 +15,4 @@ Since they ran 12,000 bottles, you should be able to find it.  It's a vatting of
 
 Also, [this isn't a stock photo](http://imgur.com/4Ie84) ;)
 
-**Rating: 93/100** 
-
-^29th ^review
-
-[Homepage](http://www.ardbeg.com/ardbeg/ardbegday) | [Review](http://www.connosr.com/reviews/ardbeg/ardbeg-day-bottle-2012/you-can-never-have-too-much-whisky/) | Buy @ [Wine-Searcher](http://www.wine-searcher.com/find/ardbeg+day)
+**Rating: 93/100**

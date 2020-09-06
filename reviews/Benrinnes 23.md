@@ -14,5 +14,3 @@ This is the prize of my open bottles right now, and possibly the best Speyside I
 It's truly unfortunate that Benrinnes doesn't make regular bottlings or distribute to the US, but if you want one, you can buy one [here](http://www.thewhiskyexchange.com/P-10893.aspx).
 
 **Rating: 100/100**
-
-^62nd ^review

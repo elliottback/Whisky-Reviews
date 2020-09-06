@@ -14,5 +14,3 @@ So today we have the [Bruichladdich 1990 aged 24 years](https://www.whiskybase.c
 This is excellent, and a perfect example of putting Islay whisky in non-bourbon casks.
 
 **Rating: 94/100**
-
-^148^th ^/r/scotch ^review

@@ -14,7 +14,3 @@ It is cask strength (yay), natural colour, and non-chill-filtered.
 I quite enjoy this; it's a powerful sherry-heavy single cask.  It reminds me of a more subtle/less sulphury Glenfarclas Family Cask.  I'd buy it again.
 
 **Rating: 90/100**
-
-^137^th ^/r/scotch ^review
-
-/u/Review_Bot 'Benriach'

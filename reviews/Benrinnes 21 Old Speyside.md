@@ -12,7 +12,3 @@ I bought this in Japan but I cannot remember where; it just says on the label it
 This is a vatting of Benrinnes casks to sell to the market--a solid whisky, but there's not much interesting here to taste.
 
 **Rating: 82/100**
-
-^150^th ^/r/scotch ^review
-
-/u/Review_Bot 'Benrinnes'

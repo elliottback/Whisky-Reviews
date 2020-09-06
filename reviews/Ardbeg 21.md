@@ -12,5 +12,3 @@ A single-cask offering [from KLwines](http://www.klwines.com/detail.asp?sku=1155
 This is a fantastic Ardbeg, the first single cask/IB I've had which may be skewing my review to older/more experienced scotchittors, but absolutely amazing.  If a $400 bottle doesn't break your budget, and you love Islays, you are in for a treat.
 
 **Rating: 96/100**
-
-^90th ^review

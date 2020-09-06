@@ -12,5 +12,3 @@ This is my first dram from The Knockdhu distillery at black Knock hill in Banffs
 This is a surprise to me, as it normally runs around $40-50 in NYC, a cheaper election, but it's a very light, lovely dram with great floral aspects.  I'll definitely be trying other Knockdhu expressions in the future!
 
 **Rating: 87/100**
-
-^92nd ^review

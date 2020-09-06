@@ -12,5 +12,3 @@ This has to be one of /u/UncleTobys 's samples, I have no idea what to expect as
 A very enjoyable malt, reminding me of a less aggressive Kilchoman.  The oak is not excessively pronounced or young, and the peating is moderate at best.
 
 **Rating: 89/100**
-
-^22nd ^world ^whisky ^review

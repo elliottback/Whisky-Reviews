@@ -14,7 +14,3 @@ This is a solid sherried dram that's perhaps unique in how light it is--it's not
 It's a bit expensive, I do not think I would buy it regularly.
 
 **Rating: 85/100**
-
-^136^th ^/r/scotch ^review
-
-/u/Review_Bot 'Benriach'

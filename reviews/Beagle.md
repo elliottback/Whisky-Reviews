@@ -14,5 +14,3 @@ This is pretty good, but very straightforward hot-climate whisky.  I am guessing
 It's a bit like Monkey Shoulder with punch.
 
 **Rating: 80/100**
-
-^30th ^world ^whisky ^review

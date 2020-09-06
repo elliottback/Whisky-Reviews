@@ -11,8 +11,4 @@ The revered non-chill filtered version of Aberlour 12, this will be a richer, cr
 
 I remember drinking Aberlour 12 and thinking it was nice, and better than Macallan at the same age, but nothing to write home about.  Aberlour 12 NCF is the deluxe version, and it's solid.  If you want an affordable sherried dram that won't let you down, this is probably the one.
 
-@review_bot 'Aberlour'
-
 **Rating: 87/100**
-
-^96th ^/r/scotch ^review

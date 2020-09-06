@@ -12,7 +12,3 @@ This is a second-fill hogshead toasted again, distilled on 2 October 2002, and o
 This is a very lovely Aberlour, in a rereused cask, and still a lovely dram.  The pricing also, reflects the quality--a nice drink for a cold evening, but not given quite enough love from the casks as the spirit is worth.
 
 **Rating: 86/100**
-
-^159^th ^/r/scotch ^review
-
-/u/Review_Bot 'Aberlour'

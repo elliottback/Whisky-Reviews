@@ -13,8 +13,4 @@ Mood: sewing.
 
 I like it, but there are a few weird off notes and a sense of a hot spirit that I didn't get with the PCn releases.  The flavour is here, though.
 
-@review_bot 'Bruichladdich'
-
 **Rating: 81/100**
-
-^94th ^/r/scotch ^review

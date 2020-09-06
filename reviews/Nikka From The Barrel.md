@@ -16,5 +16,3 @@ This is a "double matured" blend from the [Nikka Whisky Distilling Company](http
 This is pretty good, and the more you drink the more you warm up to it.  Japanese whisky is top notch.
 
 **Rating: 87/100**
-
-^78th ^review

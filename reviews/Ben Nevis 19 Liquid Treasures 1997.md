@@ -12,7 +12,3 @@ Here we have [a Ben Nevis](https://www.whiskybase.com/whiskies/whisky/89418/ben-
 I can't really describe this Ben Nevis well, but it's complex and tasty; I'd buy it again =]
 
 **Rating: 86/100**
-
-^167^th ^/r/scotch ^review
-
-/u/review_bot 'Ben Nevis'

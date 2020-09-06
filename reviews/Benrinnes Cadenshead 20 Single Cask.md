@@ -12,7 +12,3 @@ This is a probably natural colour, NCF single cask from Cadenhead, matured in oa
 This is a great, light, and not particularly complex dram.  It reminds me very much of Longmorn in style--I think I prefer the Benrinnes in Sherry.
 
 **Rating: 75/100**
-
-^138^th ^/r/scotch ^review
-
-/u/Review_Bot 'Benrinnes'

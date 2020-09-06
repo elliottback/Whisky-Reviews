@@ -14,5 +14,3 @@ This is a Caol Ila bottled at its prime, and at cask strength.  Once you get muc
 **Rating: 93/100**
 
 ^168^th ^/r/scotch ^review
-
-/u/review_bot 'Caol Ila'

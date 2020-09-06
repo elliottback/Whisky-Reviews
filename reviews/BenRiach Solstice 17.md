@@ -18,5 +18,3 @@ Normally I would be angry that this is only 50% and not the 58% or low 60s that 
 I just purchased three more bottles of this, at $99 it's an incredible steal.
 
 **Rating: 98/100**
-
-^101^st ^/r/scotch ^review

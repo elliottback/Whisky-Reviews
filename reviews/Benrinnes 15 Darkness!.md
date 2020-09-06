@@ -17,8 +17,4 @@ This is very tasty, rich, and satisfying.  However, some of the sherry elements 
 
 Nonetheless, I like the experiment that Master of Malt tried with the Darkness! series, and I'm looking forward to what they come up with next--hopefully spending a little more time in the finishing casks, and perhaps vatting a number of them together to create a better marriage.
 
-@review_bot 'Benrinnes'
-
 **Rating: 93/100**
-
-^100th ^/r/scotch ^review

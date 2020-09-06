@@ -22,5 +22,3 @@ It's got an interesting, prickly mouthfeel.  It's both fresh, but creamy and ric
 I'd definitely buy this, but I suspect it's not widely available in the USA :)
 
 **Rating: 89/100**
-
-^104^th ^/r/scotch ^review

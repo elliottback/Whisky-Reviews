@@ -12,7 +12,3 @@
 The best part about this is the weird part about this, which is there are little bits of cask floating around here!  I would buy this again, it's interesting, but it's a departure from the usual Ben Nevis profile.
 
 **Rating: 83/100**
-
-^190th ^/r/scotch ^review
-
-/u/review_bot 'Ben Nevis'

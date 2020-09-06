@@ -11,8 +11,4 @@ Another Arbeg beastie, this 2011 reptile is 60% 10yr / 40% 10yo matured in [heav
 
 It's like eating Jean Georges' chicken--it's amazing, but it's still chicken.  I love the concept of overchar, and the marketing is brilliant.  A limited release worth tasting if you run into it, but less robust and memorable than Uigeadail.  If you have to take the edge off an Ardbeg 10yr, better to do it with a NAS sherry.  However, fans of **extreme smokiness** will love this.  It's delicious and drinkable, but once you get over the initial novelty of the flavour profile, lacking significant depth.
 
-**Rating: 89/100** 
-
-^13th ^review
-
-[Homepage](http://www.ardbeg.com/gator/) | [Reviews](http://www.connosr.com/reviews/ardbeg/ardbeg-alligator/) | Buy @ [Wine-Searcher](http://www.wine-searcher.com/find/ardbeg+alligator/0)
+**Rating: 89/100**

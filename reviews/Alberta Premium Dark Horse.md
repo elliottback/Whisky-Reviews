@@ -14,7 +14,3 @@ Dark Horse is a 12yr/6yr small-pot blended rye that differs from the regular ver
 I have to say that this quite an excellent rye that drinks more like a Speysider!  If you're ever in Canada, you won't be disappointed.  I review without regard to price, so this may have the best quality / price ratio of anything I've ever had!
 
 **Rating: 86/100**
-
-^102nd ^review
-
-^15th ^world ^whisky ^review

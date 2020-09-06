@@ -14,7 +14,3 @@ This is a super interesting whisky; both the source (Amrut, Bangaluru India) and
 I will happily buy more Raw Casks in the future--hats off to both Amrut and Blackadder!
 
 **Rating: 92/100**
-
-^29th ^world ^whisky ^review
-
-/u/Review_Bot 'Amrut'

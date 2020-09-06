@@ -12,7 +12,3 @@
 While this is not the absolute banger that the 23 year old was, the 21 year old is still a fantastic dram--more on the nutty, malty profile, with more subtle sherry.  If you can find a bottle < $200, and you're a Benrinnes fan, you'd love it.
 
 **Rating: 91/100**
-
-^170^th ^/r/scotch ^review
-
-/u/review_bot 'Benrinnes'

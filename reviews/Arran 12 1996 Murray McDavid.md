@@ -13,5 +13,3 @@ Finally a single malt!  This is a special IB Arran finished in Premier Cru Marga
 I've had limited experience with wine-finishes on scotches, but this Arran is well integrated.  Whereas with the Ardbeg Galileo I could taste the "Ardbeg Layer" and the "Wine Layers" as two seperate flavours pulling in different directions, this Arran is cohesive and richer.
 
 **Rating: 78/100**
-
-^43rd ^review

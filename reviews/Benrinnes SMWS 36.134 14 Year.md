@@ -16,7 +16,3 @@ SMWS label notes:
 This is a bit of a challenging bottle--it's not bad, but it probably should have sat in its cask for a few more years.  It lacks the classic Benrinnes profile I enjoy, and the spirit feels feisty still for aging.
 
 **Rating: 78/100**
-
-^149^th ^/r/scotch ^review
-
-/u/Review_Bot 'Benrinnes'

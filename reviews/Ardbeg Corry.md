@@ -14,5 +14,3 @@ While I am quite happy to drink this, and it's not the disaster that was Galileo
 To me, this tastes much like one of those famed 21 year old Islays (60+ in scotch-dog years, eh?) that is a bit beyond its prime.
 
 **Rating: 86/100**
-
-^63rd ^review

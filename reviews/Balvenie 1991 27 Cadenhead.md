@@ -12,8 +12,3 @@ This Balvenie is very similar to [this release](https://www.whiskybase.com/whisk
  This is a tasty bourbon-cask Balvenie, not a hint of cardboard.  Quite nice!
 
 **Rating: 87/100**
-
-^174^th ^/r/scotch ^review
-
-/u/review_bot 'Balvenie'
-/u/review_bot 'Burnside'

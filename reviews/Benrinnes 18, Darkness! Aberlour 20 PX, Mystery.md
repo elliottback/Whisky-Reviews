@@ -13,13 +13,9 @@ This Benrinnes is clearly natural color, possibly chill-filtered from a small IB
 
 This is an excellent, less bitter/grassy, and pleasantly aged Longmorn.  It's a rounder, with a nicer mouthfeel, fall dram.  I'm not completely blown away, but it's perfect, with no off notes--extremely floral.
 
-@review_bot 'Benrinnes'
-
 **Rating: 89/100**
 
-^97th ^/r/scotch ^review
-
-**Darkness! Aberlour 20 Year Old Pedro Ximénez / 20 yr / 53.7% ABV**
+**Darkness! Aberlour 20 Year Old Pedro Ximï¿½nez / 20 yr / 53.7% ABV**
 
 *Tasted with a nip of water*
 
@@ -32,11 +28,7 @@ This pretentious dram was aged in a PX octave cask for just three months.  The t
 
 I quite liked this, it's a bit like the 12 NCF with more depth, more aged leather and cigars, and the sherry shines through because it's so dry!
 
-@review_bot 'Aberlour'
-
 **Rating: 91/100**
-
-^98th ^/r/scotch ^review
 
 **/u/Scotch_Fanatic mystery dram**
 
@@ -55,4 +47,4 @@ This is quite delicious, and I think my second-favourite of the bunch.  I quite 
 
 **Rating: 92/100**
 
-^99th ^/r/scotch ^review
+TODO: split me

@@ -13,5 +13,3 @@ If Master of Malt was an American company, they'd be able to divide 750 ml into 
 If this was supposed to be good, it's not.  It has no redeeming quality.  It's literally a worse version of their [speyside liqueur](http://www.masterofmalt.com/liqueurs/master-of-malt-10-year-old-speyside-whisky-liqueur/?srh=1)...
 
 **Rating: 0/100**
-
-^41st ^review

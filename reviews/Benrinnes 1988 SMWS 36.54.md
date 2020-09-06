@@ -14,7 +14,3 @@ It suffers from a bit of dry cork syndrome, but the cork remained intact and it 
 Very nice lightly sherried Benrinnes, it accents without overpowering the spirit.
 
 **Rating: 91/100**
-
-^189th ^/r/scotch ^review
-
-/u/review_bot 'Benrinnes'

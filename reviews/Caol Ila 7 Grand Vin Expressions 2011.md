@@ -12,7 +12,3 @@ This is a Caol Ila 2011, cask #900065, aged for seven years in unspecified casks
 I have hard time for super-young Caol Ila; this cask has just a slightest touch of the cask they put it in.  I wish this was just a pre-release sample, and they finished it for another 5,6 years in the wine cask.
 
 **Rating: 74/100**
-
-^169^th ^/r/scotch ^review
-
-/u/review_bot 'Caol Ila'

@@ -20,7 +20,3 @@ Tasting notes from the bottle read:
 This is a really nice dram, and Cadenhead are really putting out a fantastic product at the price point.  I would definitely buy this particular bottle again, and will continue buying Cadenhead's releases as I see them.
 
 **Rating: 91/100**
-
-^144^th ^/r/scotch ^review
-
-/u/Review_Bot 'Benrinnes'

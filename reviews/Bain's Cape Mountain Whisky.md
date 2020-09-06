@@ -13,5 +13,3 @@ South African single-grain whisky, made with local Cape Mountains water.
 No age statement here, but this is a smooth sipping-on-ice sort of whisky that goes down like a piña colada.  It's inoffensive, and while I'd never buy it, I've had far worse Canadians.
 
 **Rating: 58/100**
-
-^42nd ^review
