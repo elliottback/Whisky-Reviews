@@ -13,8 +13,4 @@ It's a bit nauseating, but not a bad effort.  I appreciate the extra attention t
 
 If you are going to willing drink cutty sark, I'd advise you to elect the extra $5/10 to get this one!
 
-@review_bot
-
 **Rating: 63/100**
-
-^95th ^/r/scotch ^review

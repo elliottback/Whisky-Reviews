@@ -14,5 +14,3 @@ The outturn is 605 bottles at natural cask strenght, with natural colour, no fil
 This is a pretty good, sulpury Glenrothes, juiced up at cask strength, but it's also got tons of unpalatable  off notes.  I'm glad to have tried it, but I like a more subtle/balanced style sherried whisky.
 
 **Rating: 79/100**
-
-^162^nd ^/r/scotch ^review

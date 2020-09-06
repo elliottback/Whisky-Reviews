@@ -16,7 +16,3 @@ Malt-review [has been slamming](https://malt-review.com/2020/04/12/smws-april-20
 This breaks down a little bit with water added, I think I actually prefer it neat.  It has a really strong fruit/wine-influenced profile, but I think they've done quite well to use a hopefully longer finishing period on a decently aged whisky.
 
 **Rating: 89/100**
-
-^^180th ^/r/scotch ^review
-
-/u/review_bot 'Craigellachie'

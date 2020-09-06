@@ -16,7 +16,3 @@ There is a little bit of a cardboardy off-note towards the mid-end, but otherwis
 This is an excellent IB, especially at the price it went for (bought at auction).  I am also a big fan of Fettercairn's fruity and rich flavour profile and look forward to trying more in the future!
 
 **Rating: 89/100**
-
-^187th ^/r/scotch ^review
-
-/u/review_bot 'Fettercairn'

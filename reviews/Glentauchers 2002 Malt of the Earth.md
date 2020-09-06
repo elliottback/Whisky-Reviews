@@ -12,5 +12,3 @@ Special thanks to /u/ernestreviews for the sample, as I have never tried this di
 Glentauchers is one of the malt-houses that Pernod Ricard uses in its blends, most notably Chivas Regal.  The spirit is hot, with some subtle off notes, but very enjoyable, especially texturally.  It reminds me most of a more aged Longmorn (also a Chivas component), with more oak and thicker mouthfeel.  Not an everyday dram, but quite a treat to try something that rarely makes a public appearance.
 
 **Rating: 87/100**
-
-^98th ^review

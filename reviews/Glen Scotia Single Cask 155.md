@@ -12,5 +12,3 @@ I haven't tried Glen Scotia before, so my friend gave me a sample of [their sing
 This is quite pleasant but simple; I personally wouldn't buy a bottle of it, but it's well constructed and doesn't have any glaring flaws.  I am also pleased they offered it at cask strength, natural colour, no filtering.  I'd definitely go for an older/un-peated/sherried expression in the future.
 
 **Rating: 83/100**
-
-^184th ^/r/scotch ^review

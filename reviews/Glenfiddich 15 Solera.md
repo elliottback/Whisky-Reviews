@@ -14,5 +14,3 @@ From the back of the bottle, it explains what this "solera" thing is about:
 This is one of the best Glenfiddichs out there--and if you can get the 15yr old or higher at a better ABV (say a travel Distiller's Edition) go for it.  Absolutely fab.
 
 Rating: 93/100
-
-^57th ^review

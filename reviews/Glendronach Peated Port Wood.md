@@ -12,7 +12,3 @@ This Glendronach is smoked with highland peat and then finished in Douro Valley 
 I don't like this at all; the port finish is barely noticeable, the spirit is super young, and the peat they used is revolting.  Closest comparable dram would be the West Cork Port Finish.
 
 **Rating: 45/100**
-
-^172^nd ^/r/scotch ^review
-
-/u/review_bot 'Glendronach'

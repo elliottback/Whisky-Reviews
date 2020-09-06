@@ -15,7 +15,4 @@ Or maybe Scotland was just nastier then, and all of that made it into the bottle
 
 **Rating: 98/100**
 
-^73rd ^review
-
-# Uh, [this is one of my pages](http://facebook.com/Bird.Kiwi)
-# I can't believe this is 46% after 40 years
+I can't believe this is 46% after 40 years!

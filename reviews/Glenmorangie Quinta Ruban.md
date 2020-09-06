@@ -12,5 +12,3 @@
 Extraordinarily delightful, not overly complex.  I've been trying to get into port-finished scotches since I had the Laphroaig special edition, and this one lives up.  Also, it's amazingly affordable!
 
 **Rating: 91/100**
-
-^103nd ^review

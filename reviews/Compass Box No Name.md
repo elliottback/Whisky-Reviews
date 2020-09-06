@@ -17,7 +17,3 @@ I picked [this](https://www.compassboxwhisky.com/whiskies/index.php?id=24#pretty
 This is a bit like a frankenstein Islay dram--it definitely delivers as "Compass Box's peatiest dram yet", but it's so terribly hot and unbalanced that you can't really enjoy it.  A clean Ardbeg 10 or Caol Ila 12 is far better.  I actually feel sorry for the poor Clynelish that went into this.
 
 **Rating: 56/100**
-
-^156^th ^/r/scotch ^review
-
-/u/Review_Bot 'Compass Box'

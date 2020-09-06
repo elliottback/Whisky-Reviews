@@ -14,7 +14,3 @@ I didn't like the previous bottle of this that I tried, but single-cask stuff ca
 This one's a good bit thicker and better than the previous bottle I tried, but it's not quite my favourite sort of sherry bomb.  It seems to have too many rough edges, and not enough complexity.
 
 **Rating: 68/100**
-
-^135^th ^/r/scotch ^review
-
-/u/Review_Bot 'Clynelish'

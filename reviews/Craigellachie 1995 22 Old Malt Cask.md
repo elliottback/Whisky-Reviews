@@ -12,7 +12,3 @@
 This one's a bit all over the place for me; it's fruity and weird, but the rubbery nose kills it a bit for me.  Would I buy it again?  Maybe.  
 
 **Rating: 73/100**
-
-^175^th ^/r/scotch ^review
-
-/u/review_bot 'Craigellachie'

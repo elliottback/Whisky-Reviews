@@ -14,7 +14,3 @@ This was matured for 29 years in a Bourbon cask, distilled 1989, and bottled 201
 This is a nice Glenlivet with more of a single-cask characteristic to it, with some really nice light notes, and mint.
 
 **Rating: 85/100**
-
-^175^th ^/r/scotch ^review
-
-/u/review_bot 'Glenlivet'

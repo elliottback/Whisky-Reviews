@@ -17,7 +17,3 @@ Sadly I bought this in person quite some time ago and don't recall the price, ex
 This is not a sherry bomb, this is a very lovely sherried whisky that is subtle, clean, flavourful, and layered with complexities.  If you see a bottle around under $100, it's a definite buy.  Also--how do other batches compare, if you'd had them before?
 
 **Rating: 90/100**
-
-^160^th ^/r/scotch ^review
-
-/u/Review_Bot 'Glendronach'

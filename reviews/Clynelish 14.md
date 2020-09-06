@@ -12,7 +12,3 @@ Clynelish, the famed Brora's twin, has finally got a few OB releases on the mark
 This is a lovely OB of Clynelish--it's got a lot of the floral, fruity notes and waxy mouthtaste you find in the more exalted IBs.  The notes are not as pure as those, because this is younger, and a vatting.  Also, I quite appreciate the higher 46% ABV in a standard bottling!
 
 **Rating: 87/100**
-
-^165^th ^/r/scotch ^review
-
-/u/review_bot 'Clynelish'

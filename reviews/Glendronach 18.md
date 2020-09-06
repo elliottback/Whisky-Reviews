@@ -14,5 +14,3 @@ This is their 18 year standard offering, matured entirely in Oloroso sherry.  It
 Wow!  This is not a special overproofed sherry monster, it's a standard 18 year old offering.  And it's great.  It most reminds me of ~30 yro Karuizawa, despite probably never having been near a mizunara tree in its life.
 
 **Rating: 91/100**
-
-^119^th ^/r/scotch ^review

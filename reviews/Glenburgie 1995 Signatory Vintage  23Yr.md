@@ -12,5 +12,3 @@
 The Glenburgie ends up mostly in Ballantines, and I get the connection now.  This is a little bit hot even with water, and a bit cardboard-y, but still plenty fruity and a good light dram for warm weather. 
 
 **Rating: 85/100**
-
-^182nd ^/r/scotch ^review

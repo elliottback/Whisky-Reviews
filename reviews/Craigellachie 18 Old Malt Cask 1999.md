@@ -14,5 +14,3 @@ I bought it on the secondary market, as I've been a fan of OMC for quite a while
 This is pretty uncomplicated; sweet dessert sherry, strawberries, and mint are extremely forward.  I am interested in the ABV on this cask, which at just under 46% at 18 years seems quite low, and a 91 bottle yield is very very low.  There [are not any Laing](https://www.whiskybase.com/whiskies/brand/81414/craigellachie?style=table&bottler_id=&vintage_year=1999&type_id=&itemsforsale=&votes=) 1999 18 yrs, so it's not a split cask... so maybe a spilt cask?
 
 **Rating: 87/100**
-
-^161^st ^/r/scotch ^review

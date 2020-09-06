@@ -12,5 +12,3 @@ This is the Chivas blended 18 year old, finished in Mizunara casks.  Bottle code
 There's nothing here to hate, this is actually a pretty well executed blend with a unique finish that does come through--a little bit.  I would probably recommend this as a present over Blue Label, just because it's at least trying a bit more.
 
 **Rating: 75/100**
-
-^147^th ^/r/scotch ^review

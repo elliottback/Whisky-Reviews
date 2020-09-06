@@ -14,5 +14,3 @@ This is delicious!  Perhaps it's the cusp of where a 43% ABV can age without get
 It's a perfect slow-sippin' scotch for us curmudgeons.
 
 **Rating: 92/100**
-
-^65th ^review

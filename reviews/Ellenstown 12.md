@@ -11,8 +11,4 @@ Nobody actual knows where this independent single cask is from, but rumour has i
 
 This is an interesting single malt, at $50, but not one you'd probably ever buy again.  It's tolerable for peatheads, but tastes a bit like a vatting gone wrong between an immature Bowmore and a cask of Caol Ila, with a little bit of some bizzarre Hawaiian Dogfish-Head inspired tropical flavouring thrown in to pollute the distillate.  You may never hear me say this ever again, but it's possible that Chill-Filtration would *improve* the palate of this whisky.  It's a dirty hangover bomb!
 
-**Rating: 72/100** 
-
-^21st ^review
-
-[Homepage](http://www.klwines.com/detail.asp?sku=1044515) | [Review](http://www.scotchdrammer.com/2010/12/review-ellenstown-10.html) | Buy @ [Wine-Searcher](http://www.wine-searcher.com/find/ellenstown)
+**Rating: 72/100**

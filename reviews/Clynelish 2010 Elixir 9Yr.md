@@ -12,7 +12,3 @@ This very young Clynelish was distilled in 2010 and bottled in 2019 from a barre
 This is a very young Clynelish but it's quite nice despite that; it's certainly got the expected waxiness and mouthfeel, but it's very tropical/citrus fruits and needs quite a bit of watering.
 
 **Rating: 82/100**
-
-^188th ^/r/scotch ^review
-
-/u/review_bot 'Clynelish'

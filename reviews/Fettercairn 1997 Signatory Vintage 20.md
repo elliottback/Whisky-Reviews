@@ -12,5 +12,3 @@ This is my first Fettercairn, a Highlands distillery, distilled on 10.10.1997 an
 This is enormously delicious, fruity, and complex.  I am looking forward to more Fettercairn!
 
 **Rating: 91/100**
-
-^176^th ^/r/scotch ^review

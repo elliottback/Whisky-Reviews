@@ -24,7 +24,3 @@ SMWS notes (it is still available to purchase in [Japan](https://smwsjapan.com/9
 This reminds me a lot of Swedish-style Spiced Winter Wine (Glögg) in whisky form.  I feel like I've got no idea what Glen Grant is about, because the Oloroso cask used must have been incredibly active!  This is tasty, but not interesting enough for me to buy again.
 
 **Rating: 86/100**
-
-^145^th ^/r/scotch ^review
-
-/u/Review_Bot 'Glen Grant'

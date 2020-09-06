@@ -14,5 +14,3 @@ There are apparently two versions of this 11 year old release, [one for the UK](
 You know what?  The hype is probably real, this is fucking good whisky for 11 years in Bourbon casks.  Whatever they're doing over at Fife it's working.
 
 **Rating: 90/100**
-
-^154^th ^/r/scotch ^review

@@ -12,7 +12,3 @@
 These mid-90s Clynelish continue to impress me greatly, this is a fantastic exemplar of the perfect Clynelish sweet-spot.
 
 **Rating: 96/100**
-
-^185th ^/r/scotch ^review
-
-/u/review_bot 'Clynelish'

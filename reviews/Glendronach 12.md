@@ -19,7 +19,3 @@ There is a [diagram on Worlds of Whisky](https://wordsofwhisky.com/wp-content/up
 Quite a lovely dram--in its budget category, I think it sets the standard for a 12 year sherry.
 
 **Rating: 86/100**
-
-^168^th ^/r/scotch ^review
-
-/u/review_bot 'Glendronach'

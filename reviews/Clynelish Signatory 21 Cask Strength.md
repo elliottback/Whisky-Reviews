@@ -14,7 +14,3 @@ It is naturally coloured.  From the haze in the glass, I think it's also non-chi
 I am not an expert on this distillery, but this is not the best dram I've had from them.  The sherry is pretty tired, and the spirit a little too fiesty for 21 years.  I don't find much oak/vanilla influence in this one, and it tastes young.
 
 **Rating: 60/100**
-
-^131^st ^/r/scotch ^review
-
-/u/Review_Bot 'Clynelish'

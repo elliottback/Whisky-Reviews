@@ -12,7 +12,3 @@ So this is an 18 year old matured mostly in European Oak and then transferred to
 If there was such a thing as a high proof Tawny Port, this might be close to it.  As a fan of a nice dessert Port, this turns out like that, but as a single malt, I find it to be extremely muddy in flavour.
 
 **Rating: 70/100**
-
-^142^nd ^/r/scotch ^review
-
-/u/Review_Bot 'Glendronach'

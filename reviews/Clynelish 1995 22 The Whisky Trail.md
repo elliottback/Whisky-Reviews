@@ -12,7 +12,3 @@ From Elixir Distillers comes [The Knights series of The Whisky Trail](https://ww
 This vintage is turning out to be a real favourite of mine for Clynelish.  Buy buy buy!
 
 **Rating: 92/100**
-
-^176^th ^/r/scotch ^review
-
-/u/review_bot 'Clynelish'

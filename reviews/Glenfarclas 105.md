@@ -14,5 +14,3 @@ This is amazing and often-overlooked sherry bomb.  The '105 is affordable, rich 
 Glenfarclas is still family owned, one of the few remaining private, independent distilleries in Scotland.  About the 105, you can read a few more tasting notes at the [distillery page](http://www.glenfarclas.co.uk/en/pages/78,105-Cask-Strength.html).
 
 **Rating: 93/100**
-
-^61st ^review

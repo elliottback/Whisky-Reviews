@@ -16,5 +16,3 @@ While this wouldn't be my first choice of whisky, it has a nice, light mouthfeel
 It doesn't taste like much, however, and the finish is quite flat.  Meh.
 
 **Rating: 48/100**
-
-^16th ^world ^whisky ^review

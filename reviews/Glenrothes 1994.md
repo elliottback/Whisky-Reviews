@@ -18,7 +18,3 @@ Well, it's after dindins, so let's have at!
 Oddly, this bottle tastes better having been open a couple of months than when I first cracked it--it seems the oak has died down to a point where this is drinkable and even enjoyable.  Still, for $70 you can find a better dram!
 
 **Rating: 76/100** 
-
-^18th ^review
-
-[Homepage](http://www.theglenrothes.com/uk/products/vintage-1994/) | [Reviews](http://www.connosr.com/reviews/glenrothes/glenrothes-1994-vintage/) | Buy @ [Wine-Searcher](http://www.wine-searcher.com/find/glenrothes+1994)

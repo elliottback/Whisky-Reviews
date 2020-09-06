@@ -14,5 +14,3 @@ One thing I have to say is (a) the bottles that KL puts for these single casks a
 This young firecracker is quite interesting, as I tend to dislike Glenrothes's retail offerings as compared to other Sherry monsters.  Since it's extremely young, probably aged in quite good sherry, and bottled at cask strength, it really gives you a powerful insight into the character of the whisky.  It's not well-rounded like Macallan CS or laid back like Abunadh.  But it's unique and pleasant.
 
 **Rating: 84/100**
-
-^112^th ^/r/scotch ^review

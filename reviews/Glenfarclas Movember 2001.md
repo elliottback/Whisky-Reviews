@@ -13,5 +13,3 @@ A vatting of two 9 year old Glenfarclas sherry-casks.
 This is the best sample of this batch, and it's quite excellent.  It's a fiery little beast of a sherry-bomb, and differs from the more mature Glenfarclas 105 Cask-Strength in some interesting ways.  The alcohol is more pronounced, and it's less rich, with a more agressive attack on the palate.  The nose is more subdued.
 
 **Rating: 84/100**
-
-^44th Review

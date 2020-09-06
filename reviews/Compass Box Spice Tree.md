@@ -13,5 +13,3 @@
 ~~Not~~ a huge ~~fan~~ hater of Compass Box, I don't see any reason why this should exist.  It's like a ruined Talisker or an oversold thinned out Highland Park adultered with miscellaneous herbs.
 
 **Rating: 62/100** 
-
-^45th ^review

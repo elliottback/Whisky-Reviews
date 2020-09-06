@@ -14,7 +14,3 @@ According to whiskybase, this is a limited run of 600 for the Japan market.
 This is sortof a "family casks" style Glenfarclas; it's over the top, but more like a matured 105.  Sulphur notes are pretty extreme, so if you are sensitive this might not be for you.  I feel like this is what you'd get if you toasted s'mores over a first fill sherry cask!
 
 **Rating: 86/100**
-
-^132^nd ^/r/scotch ^review
-
-/u/Review_Bot 'Glenfarclas'

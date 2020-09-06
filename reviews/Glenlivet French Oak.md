@@ -12,7 +12,3 @@ Quick sample review of the 15 year, matured in New French Limousin Casks (the ve
 This punches surprisingly above its price range!  It's not super-complicated, but it's quite tasty/relaxing.  There's a big influence from those new french oak casks; I wonder what it would be like if you finished in new french oak, or left it for 20 years in a refill cask.
 
 **Rating: 85/100**
-
-^141^st ^/r/scotch ^review
-
-/u/Review_Bot 'Glenlivet'

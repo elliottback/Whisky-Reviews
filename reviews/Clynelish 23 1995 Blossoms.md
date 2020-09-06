@@ -14,7 +14,3 @@ Distilled in 1995, and bottled in 2019, this 23 year old Clynelish was aged in a
 I'm very much a fan of this Clynelish, it's easily the tastiest dram I've had in the last year!
 
 **Rating: 97/100**
-
-^174^th ^/r/scotch ^review
-
-/u/review_bot 'Clynelish'
