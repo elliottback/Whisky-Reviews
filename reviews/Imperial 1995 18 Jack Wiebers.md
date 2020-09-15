@@ -1,4 +1,4 @@
-**Imperial 1995 18 Year Jack Wiebers / %52.7 / £166**
+**Imperial 1995 18 Year Jack Wiebers / 52.7% / £166**
 
 *Tasted with a splash of bottled water*
 
