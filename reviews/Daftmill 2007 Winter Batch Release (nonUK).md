@@ -2,7 +2,7 @@
 
 *Tasted neat*
 
-Back with the [2007 -> 2020 Asia Batch Daftmill](https://www.whiskybase.com/whiskies/whisky/150037/daftmill-2007), we've hit 12 years od age, in a limited run of 1685 bottles, but surprisingly still in heavy stock at retailers all over Japan!  Is the small-batch farm distillery getting better with age?  Let's find out.
+Back with the [2007 -> 2020 Asia Batch Daftmill](https://www.whiskybase.com/whiskies/whisky/150037/daftmill-2007), we've hit 12 years of age, in a limited run of 1685 bottles, but surprisingly still in heavy stock at retailers all over Japan!  Is the small-batch farm distillery getting better with age?  Let's find out.
 
 * **Color:** yellow gold (0.55)
 * **Nose:** caramels, mixed nuts, custard, grape must; cotton candy
