@@ -2,7 +2,7 @@
 
 *Tasted neat, then with some mineral water*
 
-[Braeval, fomerly known as The Braes of Glenlivet](https://scotchwhisky.com/whiskypedia/1826/braeval/), is a bit of an odd Speyside distillery, motheballed in 2001 and reopened in 2008 by Pernod Ricard for Chivas.  It produces 4mm litres a year.
+[Braeval, formerly known as The Braes of Glenlivet](https://scotchwhisky.com/whiskypedia/1826/braeval/), is a bit of an odd Speyside distillery, mothballed in 2001 and reopened in 2008 by Pernod Ricard for Chivas.  It produces 4mm litres a year.
 
 [This single cask](https://www.whiskybase.com/whiskies/whisky/127898/braes-of-glenlivet-1994-kb) is barrel #165588, distilled in 1994 and bottled in 2017 for 23 years in the cask.  It yielded 182 bottles, and comes with these tasting notes:
 
