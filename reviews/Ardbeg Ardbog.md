@@ -1,4 +1,4 @@
-**Ardbog / 52.1% / $85**
+**Ardbeg Ardbog / 52.1% / $85**
 
 *Tasted neat*
 
