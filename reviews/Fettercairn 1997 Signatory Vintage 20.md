@@ -1,4 +1,4 @@
-**Fettercairn 1997 Signatory Vintage 20 / 461% / $80**
+**Fettercairn 1997 Signatory Vintage 20 / 46.1% / $80**
 
 *Tasted neat*
 
