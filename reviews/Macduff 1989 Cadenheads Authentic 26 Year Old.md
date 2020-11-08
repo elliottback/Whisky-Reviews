@@ -1,4 +1,4 @@
-**Macduff 1989 Cadenheads Authentic 26 Year Old / 51% / £120**
+**Macduff 1989 Cadenhead's Authentic 26 Year Old / 51% / £120**
 
 *Tasted neat, then with a bit of bottled water*
 
