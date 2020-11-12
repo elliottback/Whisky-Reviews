@@ -1,4 +1,4 @@
-﻿**Islay Blended Malt 1997 Duncan Taylor The Octave 17 Year / 17YR / 52.2% / ~¥12000**
+﻿**Islay Blended Malt 1997 Duncan Taylor The Octave 17 Year / 52.2% / ~¥12000**
 
 *Tasted neat, then with a bit of bottled water*
 
