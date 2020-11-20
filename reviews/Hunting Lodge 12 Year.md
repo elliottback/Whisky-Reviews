@@ -1,4 +1,4 @@
-﻿**Hunting Lodge 12-year-old / 40% / ¥2,100**
+﻿**Hunting Lodge 12 Year Old / 40% / ¥2,100**
 
 *Tasted neat*
 
