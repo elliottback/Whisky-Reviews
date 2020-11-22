@@ -11,4 +11,4 @@
 
 This is an interesting one--it's a lot fruitier than most of the barrels of Benrinnes I've had, and the ABV is quite solid.  It's very fresh, and pleasant--I'd call it a summer dram!
 
-**Rating: 87/100**
+**Rating: 89/100**

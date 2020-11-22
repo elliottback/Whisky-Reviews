@@ -17,4 +17,4 @@
 
 Doing three barrels into a small batch run is a great way to ensure that you have a more consistent but still unique expression of Benrinnes to sell, and this one absolutely hits the marks.  This bottle did not last me long... 
 
-**Rating: 87/100**
+**Rating: 86/100**
