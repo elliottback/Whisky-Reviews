@@ -1,4 +1,4 @@
-**Signatory Bunnahabhain 1997 / 13 yr / 46%**
+**Bunnahabhain Signatory 1997 / 13 yr / 46%**
 
 *Tasted neat*
 
