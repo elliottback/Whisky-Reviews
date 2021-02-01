@@ -11,6 +11,6 @@ Besides the liquid, it comes in a very thick-glass square decanter with a metal-
 * **Taste:** dry plums, baked leather, that "new plastic" smell, citrus spritz, and malty sherry  
 * **Finish:** medium; lean beef jerky and icing 
 
-A lowland sherry bomb, what a suprise!  This is suprisingly good, no off notes or excessive sulpher.  The flavours turns suprisingly between flat/baked and rich/marvellous.  Excellent texture.   
+A lowland sherry bomb, what a surprise! This is surprisingly good, no off notes or excessive sulphur. The flavours turns surprisingly between flat/baked and rich/marvellous. Excellent texture.
 
 **Rating: 92/100**
