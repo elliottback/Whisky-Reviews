@@ -9,6 +9,6 @@
 * **Taste:** spicy earl grey tea, white pepper, confectionary lavender; peat 
 * **Finish:** quite long and oily, it lingers zestily with a bit of oak-aged honey
 
-This is a very floral/citrusy Highland Park, and I quite like it.  It's also quite sweet, and young fiesty elements emerge from a general feeling of proper aged oak.
+This is a very floral/citrusy Highland Park, and I quite like it.  It's also quite sweet, and young feisty elements emerge from a general feeling of proper aged oak.
 
 **Rating: 90/100**
