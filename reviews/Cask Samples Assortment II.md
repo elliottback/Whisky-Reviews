@@ -36,7 +36,7 @@ Color is straw.  Nose is young but refined, grassy, and floral, with hints of ch
 
 *Verdict*: **4+**: this is solid!  No complaints!  Very nice!
 
-**Braeval Sherry But #15630 55.2%**
+**Braeval Sherry Butt #15630 55.2%**
 
 No age on this label; colour is medium-brown.  Big dry sherry nose, BBQ and ham.  Leather.  On the tongue now we get a rich, thick, tropical fruits brownie, with chocolate syrup and dry sherry.  The finish is long and tannic; robust.
 
