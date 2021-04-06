@@ -2,7 +2,7 @@
 
 *tasted neat--you don't drink this one with water!*
 
-A'�'bunadh, Gaelic for "of the origin," is a NAS scotch from Speyside distiller Aberlour that has been matured in 100% Oloroso ex-sherry butts.  Created to honour the founder of Aberlour distillery James Fleming, A'bunadh is a vatting of 5-25 year old barrels inspired by the legendary find of a 1898 bottle of the original product in 1975.  The contents were analyzed, and in 1997 the first batch landed in our laps!
+A'bunadh, Gaelic for "of the origin," is a NAS scotch from Speyside distiller Aberlour that has been matured in 100% Oloroso ex-sherry butts.  Created to honour the founder of Aberlour distillery James Fleming, A'bunadh is a vatting of 5-25 year old barrels inspired by the legendary find of a 1898 bottle of the original product in 1975.  The contents were analyzed, and in 1997 the first batch landed in our laps!
 
 * **Color:** brown, thick muddied straw
 * **Nose:** sherry, rum, almonds, nary a whiff of alcohol
