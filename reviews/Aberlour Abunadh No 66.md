@@ -9,6 +9,6 @@ Everyone's favourite ex-Oloroso NAS sherry bomb is back with [Batch 66](https://
 * **Taste:** intensely oily, thick stewed fruits and figs; honey-glazed slow-cooked ham, anise, some mint
 * **Finish:** extremely long, this really sticks with you; sweet and spiced rum
 
-A'bunadh has still got it, and batch 66 hits you right in the face with the perfect sherry bomb.
+A'bunadh has still got it, and batch 66 hits you right in the face with the perfect sherry bomb.  Yeah, it's NAS, but it's probably the best NAS in the world.
 
 **Rating: 93/100**
