@@ -10,9 +10,9 @@
 
 * **Color:** tawny (1.4)
 * **Nose:** alcohol, currant jam, a little dry sherry, butter, and raisins
-* **Taste:** warm milk, chocolate, orange peel, and malt balls
+* **Taste:** warm milk, cardboard, chocolate, orange peel, and malt balls
 * **Finish:** long and hot, milk bubble tea
 
-One of the more milky and malty whiskies that I have tried, the oloroso finish really makes it much more palatable.
+One of the more milky and malty whiskies that I have tried, the oloroso finish really makes it much more palatable.  It's still got a bit of a bite to it, with plenty of off-notes.
 
-**Rating: /100**
+**Rating: 78/100**
