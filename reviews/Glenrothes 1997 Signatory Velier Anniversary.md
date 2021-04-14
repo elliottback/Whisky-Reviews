@@ -4,7 +4,7 @@
 
 [This](https://www.whiskybase.com/whiskies/whisky/103497/glenrothes-1997-sv) is a special Glenrothes from Signatory, released in honour of the 70th anniversary of Italian importer Velier. It comes in an eye-numbing orange-red on green label, and was distilled in 02/06/1997, bottled on 17/04/2017 after sitting for 19 years in a refill sherry butt.
 
-The outturn is 605 bottles at natural cask strenght, with natural colour, no filtration.
+The outturn is 605 bottles at natural cask strength, with natural colour, no filtration.
 
 * **Color:** dark brown
 * **Nose:** candle wax, SHERRY, ketchup, burnt rubber, and sulphur
