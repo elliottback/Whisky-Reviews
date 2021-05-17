@@ -13,6 +13,6 @@
 * **Taste:** banana bread, coal tar, sherry, and fennel
 * **Finish:** cloying; sweet, cola and molasses
 
-
+A heavy-handed wet finish makes this a clumsy Benrinnes, unfortunately not a great sherried or complex whisky. 
 
 **Rating: 75/100**
