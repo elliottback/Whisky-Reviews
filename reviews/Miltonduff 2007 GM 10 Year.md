@@ -1,4 +1,4 @@
-﻿**Miltdonduff 2007 Gordon & Macphail 10 Year Old / 61.6%**
+﻿**Miltonduff 2007 Gordon & Macphail 10 Year Old / 61.6%**
 
 *Tasted with a bit of bottled water*
 
