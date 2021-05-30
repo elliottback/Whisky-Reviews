@@ -1,4 +1,4 @@
-**Aberlour 18 / 43% ABV **
+**Aberlour 18 / 43% ABV**
 
 *Tasted neat, while watching HIMYM*
 

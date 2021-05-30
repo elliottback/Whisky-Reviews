@@ -8,7 +8,7 @@ Aged in oak & sherry, 2015 production date.  Almost certainly chill-filtered and
 
 * **Color:** caramel e150a
 * **Nose:** pine wood, cake frosting, lemon zest; ketonic
-* **Taste:** some sherry, chocolate, and leather.  Chestnuts; pecan.  Oily moutfeel. 
+* **Taste:** some sherry, chocolate, and leather.  Chestnuts; pecan.  Oily mouthfeel. 
 * **Finish:** long and oaky on the bottom, very sweet
 
 This tastes like "whisky," but as a prototype/artifice, and not as a naturally developed product.  It's OK; it is kindof like Macallan in profile, it ticks the right boxes.  It doesn't do anything to excite or stimulate.
