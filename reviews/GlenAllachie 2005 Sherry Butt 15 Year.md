@@ -2,7 +2,7 @@
 
 *Tasted neat, then with a drop of mineral water*
 
-The rather-mysterious label of [this single-cask GlenAllachie](https://www.whiskybase.com/whiskies/whisky/181253/glenallachie-2005) tells me it was distilled on 25.10.2005, raked into undisclosed sherry butt #901042, and bottled on ??.02.2021 having aged for 15 years.  Sherry-type aside, we do get nice non-chill filtered (NCF) and natural colour designators.  It does *not* state that it is cask strength, but the only other absurdity on the label, the whopping 63.0% ABV, is surely cask strength.
+The rather-mysterious label of [this single-cask GlenAllachie](https://www.whiskybase.com/whiskies/whisky/181253/glenallachie-2005) tells me it was distilled on 25.10.2005, raked into undisclosed sherry butt #901042, and bottled on ??.02.2021 having aged for 15 years.  This is bottle 407 of 523.  Sherry-type aside, we do get nice non-chill filtered (NCF) and natural colour designators.  It does *not* state that it is cask strength, but the only other absurdity on the label, the whopping 63.0% ABV, is surely cask strength.
 
 I want to know if this is PX/Oloroso/Ruby or something else, and Mr. Billy Walker usually tells us!
 
