@@ -9,6 +9,6 @@
 * **Taste:** malty, grassy, rich chocolate, dried figs, and pipe smoke 
 * **Finish:** long, evolving burnt sugar and berries
 
-There is definitely a good hit of Longmorn in here!  This is exactly what you want from a nice blended sherry malt, it's redolant with richness and flavour, just escaping the one-noteness a lot of sherry bombs have to attain a level of complexity that puts it solidly above your average blend.
+There is definitely a good hit of Longmorn in here!  This is exactly what you want from a nice blended sherry malt, it's redolent with richness and flavour, just escaping the one-noteness a lot of sherry bombs have to attain a level of complexity that puts it solidly above your average blend.
 
 **Rating: 87/100**
