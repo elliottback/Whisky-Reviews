@@ -12,5 +12,3 @@ This is a non-chillfiltered, natural color Caol Ila, distilled 24/01/1995 and bo
 This is quite tasty, but feels younger than it is on the front.  After that it reflects more maturity.  I suspect the larger size of the hogshead leave less liquid to wood interaction, which is why it's so light colored after 19 years.  But it's definitely a solid Caol Ila, with all the usual characteristics, although I prefer Signatory's CS line of Caol Ila to this one.
 
 **Rating: 86/100**
-
-^125^th ^/r/scotch ^review
