@@ -1,4 +1,4 @@
-**The Unknown Experience Secret Highland 20 Year Old / 53.5% / 27,500円**
+**The Unknown Experience Secret Highland 20 Year Old / 53.5% / 27,500円 (JPY)**
 
 *Tasted neat*
 

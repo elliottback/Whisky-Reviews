@@ -14,6 +14,6 @@ Two things spring to mind:
 * This is probably caramel coloured
 * Beware: it takes water extremely poorly
 
-This turned out to be better than I expected, but it's noticeably younger, hotter, and more expensive than the 14 year regular bottling.  Still, if you like Clyenlish, you probably won't hate this one.
+This turned out to be better than I expected, but it's noticeably younger, hotter, and more expensive than the 14 year regular bottling.  Still, if you like Clynelish, you probably won't hate this one.
 
 **Rating: 81/100**

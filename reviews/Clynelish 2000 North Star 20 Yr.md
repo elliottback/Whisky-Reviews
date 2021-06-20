@@ -2,7 +2,7 @@
 
 *Tasted neat*
 
-[This](https://www.whiskybase.com/whiskies/whisky/171681/lynch-isle-2000-nss) unusual Clynelish was distilled in August 2000 aand laid to rest in a Sherry Butt before finally being reracked into a Portuguese brandy butt for an unspecified amount of time and bottled October 2020.  The yield is an extremely massive 693 bottles.
+[This](https://www.whiskybase.com/whiskies/whisky/171681/lynch-isle-2000-nss) unusual Clynelish was distilled in August 2000 and laid to rest in a Sherry Butt before finally being reracked into a Portuguese brandy butt for an unspecified amount of time and bottled October 2020.  The yield is an extremely massive 693 bottles.
 
 * **Color:** russet (1.3)
 * **Nose:** brandy over wax, salt spray, pineapple, and black pepper
