@@ -2,7 +2,7 @@
 
 *Tasted neat, and with a bit of bottled water*
 
-[This bottle](https://www.whiskybase.com/whiskies/whisky/171958/craigellachie-2006-dl) is one of 309 14 year old Craigellachie's from sherry butt DL14023.  From the "Intensity" series, this is bottled at natural cask strength and claims to give you that "straight from the warehouse" tasting experience.
+[This bottle](https://www.whiskybase.com/whiskies/whisky/171958/craigellachie-2006-dl) is one of 309 14 year old Craigellachies from sherry butt DL14023.  From the "Intensity" series, this is bottled at natural cask strength and claims to give you that "straight from the warehouse" tasting experience.
 
 * **Color:** tawny (1.4)
 * **Nose:** sherry, mildew, lemon, marmelade, and lilac
