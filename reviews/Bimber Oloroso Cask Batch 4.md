@@ -1,4 +1,4 @@
-**Bimber Oloroso Cask Batch 4/ 51.2%**
+**Bimber Oloroso Cask Batch 4 / 51.2%**
 
 *Tasted neat*
 
