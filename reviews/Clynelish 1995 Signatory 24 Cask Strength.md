@@ -8,7 +8,7 @@ In the past I have disliked some of the Signatory Cask Strength sherried Clyneli
 
 * **Color:** auburn (1.5)
 * **Nose:** ethanol, sulphur, funky wax, cherries, and campfire smoke
-* **Taste:** that Clynelish classic waxiness, soft sherry, raisins, and 
+* **Taste:** that Clynelish classic waxiness, soft sherry, raisins 
 * **Finish:** long and oaky, dry sherry
 
 This has quite the odd nose, but it doesn't corrupt the flavour profile, which is sweetly delicious and classic Clynelish. 
