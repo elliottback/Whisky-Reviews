@@ -1,4 +1,4 @@
-**Bunnahabhain 2000 Manzanilla Cask 11 / 52.3% / £131**
+**Bunnahabhain 2008 Manzanilla Cask 11 / 52.3% / £131**
 
 *Tasted neat*
 
