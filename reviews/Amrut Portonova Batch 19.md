@@ -26,6 +26,6 @@ The back box describes the whisky and its heritage:
 * **Taste:** sulphur, malt, dark chocolate, fennel, raisins; leather, oak
 * **Finish:** long, oily; molten brown sugar and vanilla
 
-An intriguing experiment, I think Portonovo (at least the 19th such batch) falls short on the port-finished aspect; marrying it with Amrut's already super-heavy spirit and aging climate doesn't bring out enough of the port-wood aspects for me to strongly recommend this.  Also, with all that cask switching going on, this does lean quite a bit to the woody side.
+An intriguing experiment, I think Portonova (at least the 19th such batch) falls short on the port-finished aspect; marrying it with Amrut's already super-heavy spirit and aging climate doesn't bring out enough of the port-wood aspects for me to strongly recommend this.  Also, with all that cask switching going on, this does lean quite a bit to the woody side.
 
 **Rating: 82/100**
