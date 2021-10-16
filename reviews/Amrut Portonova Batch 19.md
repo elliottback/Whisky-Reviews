@@ -11,9 +11,9 @@ The back box describes the whisky and its heritage:
     ex-bourbon barrels then transferred to once-used port pipes
     imports from Portugal, and finally back to ex-bourbon casks.
 
-    It is aply named as Portonova as there is a town called
+    It is aptly named as Portonova as there is a town called
     Parangipettai (Portonovo) on the east coast of India, in
-    the souther state of Tamil Nadu, a territory that was under
+    the southern state of Tamil Nadu, a territory that was under
     Portuguese control from the 16th to the 18th century.
 
     This single malt is exotic and vibrant on both nose and the
