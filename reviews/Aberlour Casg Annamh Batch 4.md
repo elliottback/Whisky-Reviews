@@ -11,7 +11,7 @@ I am slightly confused why the label reads "Triple Cask Matured" and then only t
 * **Taste:** bubble gum, butyric acid, bananas, cola, and oak
 * **Finish:** brief, milk and candy
 
-I did not enjoy this at all, in fact, I find it terrible.  Any of the core range, like the 12-year, or Abunadh, are far superior to this malt.  
+I did not enjoy this at all, in fact, I find it terrible.  Water did nothing to improve it, except mute and dilute the flavours of the whisky.  Any of the core range, like the 12-year, or Abunadh, are far superior to this malt.  
 
 It noses incredibly hot, tastes like it's been vomited up by a creature, and does **not** make me want to return for more.  Avoid!
 
