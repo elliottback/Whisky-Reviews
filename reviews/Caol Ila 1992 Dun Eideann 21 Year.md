@@ -6,13 +6,7 @@ From Genova-based Italian independent bottler [Donato](http://donato-ge.com/whis
 
 The back label describes the brand:
 
-    Dun Eideann is the Gaelic name for Edingburgh, litteraly meaning "The Hill Fort Of Eidin",
-    a most ancient fortress.  At its feet was built the city of Edinburgh, historical and 
-    cultural heart of Scotland.  The fortress, the very symbol of the Scottish nation has
-    been inhabited by the greatest Kings and Queens of Scotland through the century and
-    there the highest "Honours Of Scotland" crown sceptre and sword of state has been helously kept
-    till our days.  For this reason the name "Dun Eideann" seals the most exclusive selection of 
-    rare malt whiskies, carefully chosen for you every year.
+    Dun Eideann is the Gaelic name for Edinburgh, literally meaning "The Hill Fort Of Eidin", a most ancient fortress.  At its feet was built the city of Edinburgh, historical and cultural heart of Scotland.  The fortress, the very symbol of the Scottish nation has been inhabited by the greatest Kings and Queens of Scotland through the century and there the highest "Honours Of Scotland" crown sceptre and sword of state has been jealously kept till our days.  For this reason the name "Dun Eideann" seals the most exclusive selection of rare malt whiskies, carefully chosen for you every year.
 
 * **Color:** burnished (1.1)
 * **Nose:** iodine, peat smoke, cream, some oak, turpentine, and musty fall leaves
