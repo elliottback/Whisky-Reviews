@@ -21,6 +21,6 @@ The back label describes the brand:
 
 This is bargain-price Caol Ila that highlights how nicely the spirit does with a little age, and at cask strength.  It's more fiery and Islay-forward than their younger standard 12 year old expression because of its higher ABV, but the longer maturation lets it show some stately age and developed, desserty flavours.  If you like Caol 12 or 18 original bottlings, try getting into some IB Caol Ila.  Caol Ila 12 at cask strength is amazing, and affordable, and young-20s age statements readily available.
 
-It used to be you could buy Caol Ila 28-32 year old from the Sigantory Vintage Cask Strength line for $250-$350, but these appear to have dried up (for now) and are quite rare, and priced accordingly.  Until they come back, let's explore some younger Caol Ila!
+It used to be you could buy Caol Ila 28-32 year old from the Signatory Vintage Cask Strength line for $250-$350, but these appear to have dried up (for now) and are quite rare, and priced accordingly.  Until they come back, let's explore some younger Caol Ila!
 
 **Rating: 8/10**
