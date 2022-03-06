@@ -1,8 +1,8 @@
-**Hazelburn 13 Oloroso / 50.3% / $150**
+**Hazelburn 2007 13 Year Old Oloroso / 50.3% / $150**
 
 *Tasted neat*
 
-[This Hazelburn](https://www.whiskybase.com/whiskies/whisky/165213/hazelburn-2007) was distilled at Springbank distillery in June 2009, and spent 13 years in "fresh" ex-Oloroso sherry casks before being bottled in September 2020 at a lovely 50.3% strength.  There were 9,900 bottles produced in this batch.
+[This Hazelburn](https://www.whiskybase.com/whiskies/whisky/165213/hazelburn-2007) was distilled at Springbank distillery in June 2007, and spent 13 years in "fresh" ex-Oloroso sherry casks before being bottled in September 2020 at a lovely 50.3% strength.  There were 9,900 bottles produced in this batch.
 
 Springbank produces three main kinds of whisky, which I will contrast in a table below:
 
