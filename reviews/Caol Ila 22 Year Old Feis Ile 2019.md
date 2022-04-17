@@ -9,6 +9,6 @@
 * **Taste:** thick oily peat and tar, sherry sweetness, iodine, and cypress; some butterscotch, pine sap, and vanilla
 * **Finish:** long--ice cream and campfire smoke
 
-Despite being on the most profligate Scotch Whisky distillery in operation today, Caol Ila packs a serious, quality punch, whether at 12 years or 22.  The extra age has tamed none of the peat, but we get dessert flavours coming into play, and some very nice woodiness to this dram. 
+Despite being on the most profligate Scotch Whisky distillery in operation today, Caol Ila packs a serious, quality punch, whether at 12 years or 22.  The importance of bottling them at cask strength cannot be underappreciated!  The extra age has tamed none of the peat, but we get dessert flavours coming into play, and some very nice woodiness to this dram. 
 
 **Rating: 7/10**
