@@ -17,6 +17,6 @@ This bottle was distilled in March 2007, laid in a single ex-sherry hogshead for
 * **Taste:** blackberries, walnuts and almonds, stewed strawberry, sherry, chocolate cake, and caramel
 * **Finish:** medium but pleasant, dry, and rich as rum
 
-*This* is what Highland Park should be putting into those Viking-themed bottles, not the watered down, offensively inoffensive whisky that goes into their OBs.
+*This* is what Highland Park should be putting into those Viking-themed bottles, not the watered down, offensively inoffensive whisky that goes into their OBs.  Kudos Watt Whisky, this is brilliant!
 
 **Rating: 8/10**
