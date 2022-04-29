@@ -11,6 +11,6 @@
 * **Taste:** burning tires, huge smokey peat, honey-roasted pork, sweet jerky, chalk; custard and fruit tarte 
 * **Finish:** medium-long, somewhat dry with hints of fruit compote and iron
 
-An excellent Laphroaig, this goes on my top-shelf with their port-finished Cairdeas and the quarter cask.  Preferentially, and this is just my personal opinion, young, cask-strength Laphroaigs are the distilleries strong point; they outshine 20-to-30 year olds.  I love young, fiery Laphroaig!
+An excellent Laphroaig, this goes on my top-shelf with their port-finished Cairdeas and the Quarter Cask.  Preferentially, and this is just my personal opinion, young, cask-strength Laphroaigs are the distillery's strong point; they outshine 20-to-30 year olds.  I love young, fiery Laphroaig!
 
 **Rating: 8/10**
