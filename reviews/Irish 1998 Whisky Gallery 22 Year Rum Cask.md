@@ -9,7 +9,7 @@ There are still [three in stock of this 22 year old un-named Irish](https://www.
 * **Taste:** very oaky, vanilla, milk chocolate, minerals, pineapple, cantaloupe, and graham crackers
 * **Finish:** quite long, sweet, with baked tarte, oak, and cobbler
 
-I have not tried much Irish whisky, let alone single casks, but this is quite a nice suprise.  Just 22 years old, and in an unusual cask, it comes out quite matured, rich and oaky, and very fruity.  It's a win in my book!
+I have not tried much Irish whisky, let alone single casks, but this is quite a nice surprise.  Just 22 years old, and in an unusual cask, it comes out quite matured, rich and oaky, and very fruity.  It's a win in my book!
 
 I suspect this may be Cooley?
 
