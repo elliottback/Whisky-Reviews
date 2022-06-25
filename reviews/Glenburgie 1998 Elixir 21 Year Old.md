@@ -2,7 +2,7 @@
 
 *Tasted neat*
 
-[This Glenburgie](https://www.whiskybase.com/whiskies/whisky/159185/glenburgie-1998-eld) was distilled on 08.10.1998 and laid to rest in ex-bourbon hogshead #900887 for 21 years before being bottled on 19.12.2019, yielding just 298 bottles.  Forming the heart of Ballentine's blends, it's a nice treat to try it as a single malt.
+[This Glenburgie](https://www.whiskybase.com/whiskies/whisky/159185/glenburgie-1998-eld) was distilled on 08.10.1998 by Elixir Distillers for their "Single Malts of Scotland" series, and laid to rest in ex-bourbon hogshead #900887 for 21 years before being bottled on 19.12.2019, yielding just 298 bottles.  Forming the heart of Ballentine's blends, it's a nice treat to try it as a single malt.
 
 * **Color:** amber (0.7)
 * **Nose:** cream, pineapple, mango, flaked pastry, and lots of papaya
