@@ -6,7 +6,7 @@ This 17 year-old Blended Scotch Whisky is [Ballantine's Tribute release](https:/
 
 Clocking in at a punchier +8% ABV to its entry-level cousin above, this  has a nice age statement, *and* is non-chill filtered.  
 
-I was able to snag this for ¥6,500 (~$50 USD, depending on exchange rates), a *significant* discount to MSRP on the secondary market.  The manufacturing code is LKMA M2963, 2018/07/18 16:46.
+I was able to snag this for ¥6,500 (~$50 USD, depending on exchange rates) on the secondary market, a *significant* ~25% discount to MSRP.  The manufacturing code is LKMA M2963, 2018/07/18 16:46.
 
 * **Color:** tawny (1.4) -- again, *probably* artificially coloured and dialed up a bit to look *older* compared to Ballantine's Finest, but also at 17 years old, if it were a single malt, it could absolutely be this colour in an ex-bourbon cask.  The casks involved here are probably quite the mix of refills.
 * **Nose:** acetone, lemon-vanilla tart, beach campfire, baked apple cobbler; a little muted milk chocolate
