@@ -13,6 +13,6 @@ Also, a cork in contrast to the Ballentine's screwtops.  I am not sure which I p
 * **Taste:** pine sap, pickled ginger, stewed pears, spice; a dash of cream
 * **Finish:** short; some caramel and spice with honey
 
-This is very pleasant but generic.  It would improve if it were bottled at a higher ABV; the marrying process in blending is less useful when you've gone to the rock-bottom of ABVs, so that extra six months finish as a blend does nothing more than really muddy up any potential complexity.
+This is pleasant but generic.  It would improve if it were bottled at a higher ABV; the marrying process in blending is less useful when you've gone to the rock-bottom of ABVs, so that extra six months finish as a blend does nothing more than really muddy up any potential complexity.
 
 **Rating: 4/10**
