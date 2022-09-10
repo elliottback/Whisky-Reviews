@@ -15,6 +15,6 @@ Enough brand confusion, let's give it a try!
 
 The shops here in Japan sold this one up quite a lot as an unbeatable value for the price, but they were right.  This is definitely a delicious Lagavulin, probably a vatting of more active barrels in the 10 year range.  It punches right into the pocket of "Laga 16 year old" fans, but with more flavour and maturity at cask strength.
 
-If you live in Japan, it's still in stock at [Saketry](https://www.saketry.com/105095.html) as of 2022-09-10.
+If you live in Japan, it's still in stock at [Saketry](https://www.saketry.com/105095.html) and [Mukawa](https://mukawa-spirit.com/?pid=169010787) as of 2022-09-10.
 
 **Rating: 8/10**
