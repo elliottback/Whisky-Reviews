@@ -4,7 +4,7 @@
 
 [This "Classic of Islay"](https://www.shinanoya-tokyo.jp/view/item/000000016038) is a little mysterious; from the label, we see only that it is a "special selection single malt scotch whisky aged in oak" and that it is an Islay Malt, non-chill-filtered, and bottled in 2022 at 58%.  The label also gives us the hint to the secret distillery with the label's view of the Dunyvaig Castle ruins, which lie across the bay from **Lagavulin**.
 
-As to the bottling, this seems to be a special larger-scale release by [Vintage Malt Whisky Co. Ltd.](https://www.vintagemaltwhisky.com/about/) who normally do single casks for [Jack Weiber's Whisky World under the same name "Classic of Islay"](https://www.whiskybase.com/whiskies/brand/82210/classic-of-islay) for the Japan market, and so while it is cask-strength (or virtually close to it), it's also NAS.
+As to the bottling, this seems to be a special larger-scale release by [Vintage Malt Whisky Co. Ltd.](https://www.vintagemaltwhisky.com/about/) who normally do single casks for [Jack Wieber's Whisky World under the same name "Classic of Islay"](https://www.whiskybase.com/whiskies/brand/82210/classic-of-islay) for the Japan market, and so while it is cask-strength (or virtually close to it), it's also NAS.
 
 Enough brand confusion, let's give it a try!
 
