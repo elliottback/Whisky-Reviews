@@ -1,4 +1,4 @@
-**Ardmore 1999 Archives 19 Year Old/ 55.8% ABV**
+**Ardmore 1999 Archives 19 Year Old / 55.8% ABV**
 
 *Tasted neat*
 
