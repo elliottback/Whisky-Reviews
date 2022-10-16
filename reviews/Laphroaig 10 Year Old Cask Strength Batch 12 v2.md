@@ -13,6 +13,6 @@ This is my second time around, I previously reviewed it [here](https://elliottba
 * **Taste:** big peaty BBQ smoke, roast smores, a touch of strawberry, burnt lemon, and thick, rich, oily bandaids
 * **Finish:** long, the intensity fades to a soothing peat lozenge with caramel and vanilla
 
-This still goes extremely hard, it's deliciously fantastic, and unbeattable for the price.
+This still goes extremely hard, it's deliciously fantastic, and unbeatable for the price.
 
 **Rating: 8/10**
