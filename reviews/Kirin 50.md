@@ -2,7 +2,7 @@
 
 *Tasted neat*
 
-This is [a NAS blend from Kirin](http://www.fujisanroku.jp/), produced around Mt. Fuji, sold widely in Japan but which for some reason is selling for [$200 or more](https://dekanta.com/store/fujisanroku-whisky/) abroad.  The blend has evolved over time, and now I have the newer bottle boasting "Non-Chill Filtered" on the label!  I panned the previous release, let's see how this stacks up.
+This is [a NAS blend from Kirin](http://www.fujisanroku.jp/), produced around Mt. Fuji, sold widely in Japan but which for some reason is selling for [$200 or more](https://dekanta.com/store/fujisanroku-whisky/) abroad.  The blend has evolved over time, and now I have the newer bottle boasting "Non-Chill Filtered" on the label!  I [panned](https://elliottback.medium.com/japanese-whiskey-review-kirin-50-at-the-foot-of-mt-fuji-ae525275f7c1) the previous release, let's see how this stacks up.
 
 The front label reads:
 
