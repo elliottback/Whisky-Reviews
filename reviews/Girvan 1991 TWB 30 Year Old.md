@@ -17,8 +17,8 @@
 * **Taste:** apple pie, a squirt of lemon, sandalwood, prickly waxy funk; sour spice
 * **Finish:** medium, some sweetness, funky sherry notes; icing sugar 
 
-I quite like this, it's good proof that single-grain can be excellent given time.
+I like this, it's good proof that single-grain can be quite good given time, although even at 30 years, it has the usual graininess that some find offputting.
 
 You can still [buy this from TWB](https://www.thewhiskybarrel.com/girvan-30-year-old-1991-viking-1) for £150!
 
-**Rating: 7/10**
+**Rating: 6/10**
