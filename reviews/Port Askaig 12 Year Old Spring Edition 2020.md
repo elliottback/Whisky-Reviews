@@ -1,23 +1,22 @@
-**GlenAllachie 2012 Vintage Cuvee Wine Cask Finish / 48% / £60**
+**Port Askaig 12 Year Old Spring Edition 2020 / 45.8%**
 
 *Tasted neat*
 
-The [GlenAllachie 2012 Vintage Cuvee Wine Cask Finish](https://theglenallachie.com/whisky/glenallachie-2012-vintage-cuvee/) just barely missed being 10 years old, having been distilled in 2012, aged in ex-bourbon American oak, and then finished for 20 months in four types of premium European red wine (Languedoc, Recioto Della Valpolicella and two undisclosed Premier Cru Classés) casks before being bottled in 2022.
+A limited edition of 5,000 bottles, this un-named Islay branded [Port Askaig 12 Year Old Spring Edition 2020](https://www.whiskybase.com/whiskies/whisky/158096/port-askaig-12-year-old-eld) was a vatting of 18 ex-bourbon hogsheads from two vintages (2006 & 2007).  Not cask strength, but it is natural colour and non-chill-filtered.
 
-GlenAllachie's press release [explains](https://theglenallachie.com/glenallachie-introduces-innovative-cuvee-wine-cask-release/) the background of the term "cuvee":
+On the front, we have:
 
-> A French term, ‘Cuvée’ is used in the wine sector to reference a blend that typically comprises more than one variety of grape.
-> The Speyside-based distillery has applied the description to whisky “by combining single malt matured in wine casks from multiple wineries.”
+> The spirit of Islay awakens. Overhead, migrating birds leave these green shores as the lengthening days and rays of amber light foresee the warmth of summer.
 
-Although the breathless press-release implies this is a serious innovation, whisky makers have been combining various vattings of mixed wine cask finishes for quite some, examples of which come to mind are Laphroaig's [Port & Wine](https://www.laphroaig.com/en/cairdeas-port-and-wine) and [Gold Spot](https://www.spotwhiskey.com/en/whiskeys/gold-spot/).
+The back has some additional text hinting at the distillery who made this:
 
-* **Color:** russet (1.3)
-* **Nose:** hot, winey, malty; apricot, baked ham, honeysuckle, and black pepper
-* **Taste:** oily but somewhat thin; spice, tobacco, more pepper, butter, a little tannin, unripe pear, passionfruit
-* **Finish:** a long war of the grapes, some sweetness, stone-fruit, and butyric acid
+> ... from a distillery on the north-east coast of Islay, close to the village of Port Askaig.
 
-The premise of this whisky is reasonable, and the execution is fine, although there's nothing I specifically love about it, at the same time, there's nothing I hate, and the price is more than reasonable.
+* **Color:** pale gold (0.3)
+* **Nose:** kelp, iodine, salt spray, creosote, kerosene, peat smoke
+* **Taste:** more iodine, whipped cream and pastry, lemon zest, and peat smoke
+* **Finish:** medium: slightly oaky, sweet, with less of the dirtier peat on the nose; creaminess increases over time
 
-If you like red wine finishes more than I do, this will probably go up a point!
+This is of course a very lovely, affordable (and arguably better than the OB) expression of Caol Ila 12 year.  If it were cask strength, it would be perfect!
 
-**Rating: 5/10**
+**Rating: 6/10**
