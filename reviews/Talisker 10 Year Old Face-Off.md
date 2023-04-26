@@ -1,8 +1,8 @@
-**Talisker 10 Year Old Face-Off: Old Blue "Maps / Made by the Sea" vs New 2022 Orange "From the Oldest Distillery on the Isle of Skye"**
+**Talisker 10 Year Old Face-Off: Old Blue "Maps / Made by the Sea" vs New 2021 Orange "From the Oldest Distillery on the Isle of Skye"**
 
 *Tasted neat*
 
-In 2022, Diageo re-branded Talisker with new labels (and potentially new juice) in [a drive for sustainability](https://www.thespiritsbusiness.com/2021/06/talisker-unveils-sustainable-packaging-refresh/):
+In 2021, Diageo re-branded Talisker with new labels (and potentially new juice) in [a drive for sustainability](https://www.thespiritsbusiness.com/2021/06/talisker-unveils-sustainable-packaging-refresh/):
 
 > The packaging weight has been reduced by 6%, with an aim of lowering Talisker’s material usage by 28 tonnes across this year.
 
