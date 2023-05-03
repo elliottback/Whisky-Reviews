@@ -13,7 +13,7 @@ All we know is that it's 12 years old, cask strength, and we can guess probably 
 
 While whisky has gotten more expensive, this is still a relatively affordable competitor in the young sherried category (Macallan 12 Sherry Oak is ¥12,950) and I think Glenfarclas has done a good job putting together a cask-strength option at this price point.
 
-There's a lot more complexity than you'll get from most of its competitors, and some lovely fruity/floral notes in this batch.
+There's a lot more complexity than you'll get from most of its competitors, and some lovely fruity/floral notes in this batch.  The downside is that these releases are Japan-exclusive (why?!) and limited, they will and do regularly sell out until the next batch arrives.
 
 If you live in Japan, this is still relatively available to purchase.  Mukawa has [6 bottles](https://mukawa-spirit.com/?pid=171805891) at regular price and [1 bottle](https://mukawa-spirit.com/?pid=171886464) with a defective label 10% off.
 
