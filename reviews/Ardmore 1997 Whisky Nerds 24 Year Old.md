@@ -9,6 +9,6 @@
 * **Taste:** honey, apple peel, a little oak, strawberries, candlewax, and cut grass
 * **Finish:** long, intensely smokey and creamy
 
-A few more years in the cask has rounded this Ardmore out quite a bit, it doesn't have the same punchy intensity that younger bottles have, but it's still undeniably Ardmore.  There is a bit of a lessoning, and in the mouth it's a bit of a let-down given the current aftermarket prices and unavailability.
+A few more years in the cask has rounded this Ardmore out quite a bit, it doesn't have the same punchy intensity that younger bottles have, but it's still undeniably Ardmore.  There is a bit of a lessening, and in the mouth it's a bit of a let-down given the current aftermarket prices and unavailability.
 
 **Rating: 6/10**
