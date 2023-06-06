@@ -6,7 +6,7 @@ Bottled for Amer Gourmet in Spain, [this Gordon & Macphail Imperial](https://www
 
 * **Color:** yellow gold (0.5)
 * **Nose:** wet grass, whipped cream, almonds, lemon, and fresh asphalt 
-* **Taste:** thin, quite green, a little hot; there is a dollup of sour cream and some oak, lime, and Oloroso sherry
+* **Taste:** thin, quite green, a little hot; there is a dollop of sour cream and some oak, lime, and Oloroso sherry
 * **Finish:** medium; graham crackers, creaminess, and some citrus
 
 There are a few points not in favour for this particular bottle:
