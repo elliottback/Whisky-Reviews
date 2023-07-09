@@ -2,7 +2,7 @@
 
 *Tasted neat*
 
-After a series of disappointing Committee Members' releases, Ardbeg has droped [BizarreBQ](https://www.ardbeg.com/en-int/ardbeg-bizarrebq-limited-edition-1101413.html) out of the blue, a NAS release aged in double charred oak casks, Pedro Ximénez sherry casks and so-called "experimental" BBQ casks.  There is really nothing at all on the label except some BBQy tasting notes and a plug for "Dj BBQ" that I completely ignored.
+After a series of disappointing Committee Members' releases, Ardbeg has dropped [BizarreBQ](https://www.ardbeg.com/en-int/ardbeg-bizarrebq-limited-edition-1101413.html) out of the blue, a NAS release aged in double charred oak casks, Pedro Ximénez sherry casks and so-called "experimental" BBQ casks.  There is really nothing at all on the label except some BBQy tasting notes and a plug for "Dj BBQ" that I completely ignored.
 
 * **Color:** tawny (1.4)
 * **Nose:** peat smoke, burnt plastic, charcoal, raspberry, bacon fat, and cherry
