@@ -1,4 +1,4 @@
-**Nantou Omar 2020 Plum Liqueur Barrel Finish / 54% ABV**
+**Nantou Omar 2020 Lychee Liqueur Barrel Finish / 54% ABV**
 
 *Tasted neat*
 
