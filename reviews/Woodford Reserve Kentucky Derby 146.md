@@ -1,4 +1,4 @@
-**Woodford Reserve Kentucky Derby 146 / 45.2% / $40 USD*
+**Woodford Reserve Kentucky Derby 146 / 45.2% / $40 USD**
 
 *Tasted neat*
 
