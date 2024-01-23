@@ -1,4 +1,4 @@
-**Johnnie Walker Celebratory Blend / 51%**
+**John Walker & Sons Celebratory Blend / 51%**
 
 *Tasted neat*
 
