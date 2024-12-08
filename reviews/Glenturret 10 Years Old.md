@@ -18,4 +18,6 @@ Let's see how it tastes!
 
 The nose has a few off notes, but is not largely unpleasant; on tasting it is well-bodied and somewhat oily, with a light and floral character.  Compared the "Sherry cask" batches that came out previously that I tried, this is a very respectable Highland malt and they're really turning quality around!
 
+Glenturret have since [changed over their core lineup](https://web.archive.org/web/20240803004533/https://theglenturret.com/collections/whisky), I look forward to reviewing one of them soon!
+
 **Rating: 5/10**
