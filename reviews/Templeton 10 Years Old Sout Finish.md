@@ -13,7 +13,7 @@ I know this is MGP, but this is quite delicious.  The higher proof brings out a 
 
 **Rating: 7/10**
 
-**Templeton Sout Cask Finish Limited Release / 46%**
+**Templeton Stout Cask Finish Limited Release / 46%**
 
 *Tasted neat*
 
